@@ -5522,3 +5522,871 @@ L'expression d'Orochimaru s'assombrit, et une trace d'horreur flasha dans ses ye
 *Fin des chapitres 97 à 101.*
 
 *À suivre — Les chapitres 102 à 106 seront prêts sur demande.*
+# L'Immortel de Konoha
+### Traduction française — Chapitres 102 à 106
+
+## Chapitre 102 — Les Quatre d'Otogakure regardent le jeune Hokage devant eux, le cœur rempli de malaise
+
+Selon la description d'Orochimaru, ce jeune homme nommé Hayashi Nanaya possédait une puissance terrifiante capable de tuer un Shinigami.
+
+Mais en le voyant de leurs propres yeux, ils comprirent véritablement ce que signifiait être insondable.
+
+L'Aura de Hayashi Nanaya était palpable, les écrasant jusqu'à ce qu'ils pussent à peine respirer.
+
+Même au deuxième stade du Sceau Maudit, ils ressentaient un sentiment d'oppression sans précédent.
+
+Comment cette Aura pouvait-elle être celle d'un jeune de dix-sept ans ?
+
+C'était comme s'il était un volcan vivant, prêt à entrer en éruption à tout moment et à réduire tout en cendres.
+
+« Seigneur Orochimaru, ce gars est vraiment dangereux. »
+
+Tayuya chuchota, ses yeux dorés verrouillés sur Hayashi Nanaya, son corps déjà paré pour le combat.
+
+Alors qu'elle se préparait à combattre, les marques du Sceau Maudit pouvaient être vues se tortillant sous sa peau, prêtes à s'activer à tout moment.
+
+Le regard de Hayashi Nanaya balaya les environs, finissant par se poser sur Senju Tsunade et Shizune, qui étaient piégées à l'intérieur de la barrière.
+
+« Libérez la barrière et laissez-les partir. »
+
+« Sinon, subissez les conséquences. »
+
+Orochimaru grinça des dents, son expression devenant de plus en plus sinistre.
+
+Il ne s'était pas attendu à ce que Hayashi Nanaya trouvât cet endroit si rapidement, ni à ce que la force de son adversaire se fût encore améliorée.
+
+Avait-il absorbé la puissance du Shukaku à Une Queue ?
+
+Il n'avait pas encore reçu cette information.
+
+Le développement de la situation avait complètement dépassé ses attentes.
+
+Il avait initialement pensé qu'il pourrait facilement capturer Senju Tsunade et la forcer à le soigner.
+
+Mais maintenant, l'apparition de Hayashi Nanaya avait complètement bouleversé ses plans.
+
+« Hmph, et alors si tu es venu ? »
+
+Orochimaru se força à rester calme, révélant un sourire froid et sinistre.
+
+« Tant que Senju Tsunade est entre mes mains, tu n'oseras pas agir à la légère. »
+
+Hayashi Nanaya sourit légèrement, une trace de mépris flashant dans ses yeux : « Tu penses vraiment que cette barrière peut piéger ma sœur ? »
+
+À peine eut-il fini de parler que Shizune, se tenant à côté de Senju Tsunade, forma soudainement des sceaux de mains.
+
+Une force puissante éclata de l'intérieur d'elle !
+
+« Brise ! »
+
+La Formation des Quatre Flammes Violettes s'effondra instantanément, et la lumière violette se dispersa comme des fragments.
+
+Les yeux d'Orochimaru s'écarquillèrent, incapable de croire ce qu'il voyait : « Comment est-ce possible ? »
+
+La silhouette de « Shizune » changea progressivement, révélant finalement sa véritable apparence — c'était en fait un autre Hayashi Nanaya !
+
+« Technique de Clone ? Non, ce n'est pas un Clone ordinaire… »
+
+Le cœur d'Orochimaru s'enfonça alors qu'il réalisait la gravité de la situation.
+
+Le Clone de Hayashi Nanaya et son corps véritable avaient des Auras presque identiques ; même un Jônin comme lui ne pouvait pas les distinguer.
+
+Cela avait déjà dépassé le cadre du ninjutsu ordinaire.
+
+« Sœur, tu vas bien ? »
+
+Hayashi Nanaya demanda avec inquiétude, ses yeux pleins de préoccupation.
+
+Senju Tsunade regarda le jeune homme devant elle, se sentant quelque peu étourdie, incapable de s'ajuster un instant.
+
+Le bébé mignon dans ses souvenirs avait maintenant grandi en un jeune homme vigoureux.
+
+Et il était également devenu le Hokage de Konoha.
+
+Ce contraste était quelque chose qu'elle ne pouvait accepter pour le moment.
+
+« Nanaya… tu es vraiment Nanaya ? »
+
+Senju Tsunade murmura, ses yeux remplis d'incrédulité.
+
+Hayashi Nanaya sourit légèrement : « C'est moi, Sœur. »
+
+Senju Tsunade prit une profonde inspiration, supprimant le choc dans son cœur : « Tu… tu es vraiment devenu Hokage ? »
+
+« Oui, après que le Troisième Hokage se fût sacrifié, j'ai succédé à la position de Cinquième Hokage. »
+
+Hayashi Nanaya expliqua brièvement, puis se tourna vers Orochimaru, son regard devenant instantanément froid : « Maintenant, je vais m'occuper de ce serpent venimeux. »
+
+Le visage d'Orochimaru était sombre ; il s'était déjà préparé à fuir.
+
+Lors de la dernière bataille à Konoha, il avait déjà expérimenté la force terrifiante de Hayashi Nanaya.
+
+Maintenant que son adversaire avait absorbé la puissance du Shukaku à Une Queue, sa force s'était élevée à un nouveau niveau, et il n'était tout simplement pas de taille.
+
+« Quatre d'Otogakure, arrêtez-les ! »
+
+Orochimaru ordonna sèchement, tout en lançant simultanément un regard à Yakushi Kabuto, se préparant à s'échapper dans le chaos.
+
+Tayuya, Jirōbō, Kidōmaru et Sakon prirent immédiatement leur formation.
+
+Libérant leurs Sceaux Maudits respectifs, leurs Auras devinrent instantanément violentes.
+
+« Deuxième Stade du Sceau Maudit ! »
+
+Les corps des quatre commencèrent à subir des mutations, et leur peau changea de couleur.
+
+Des organes et des appendices étranges poussèrent sur leurs corps, et leurs Auras devinrent encore plus puissantes et tordues.
+
+Voyant cette scène, les sourcils de Senju Tsunade se froncèrent légèrement : « Quel genre de ninjutsu est-ce ? Leur Chakra est devenu si étrange. »
+
+« C'est le Sceau Maudit d'Orochimaru. »
+
+Hayashi Nanaya expliqua, sans une trace de peur dans ses yeux : « Cependant, face à une force absolue, tout cela n'est que futile. »
+
+Tayuya lança l'attaque en premier, son corps se transformant en une araignée géante, crachant d'innombrables fils d'araignée collants de sa bouche : « Technique de Liaison par Fils d'Araignée ! »
+
+Jirōbō suivit de près, ses mains se transformant en lames tranchantes alors qu'il tailladait Hayashi Nanaya : « Tranchante Démoniaque ! »
+
+Hayashi Nanaya resta sur place, immobile, comme s'il ne voyait pas les attaques approcher.
+
+« Nanaya, fais attention ! »
+
+Senju Tsunade s'exclama, voulant subconsciemment avancer pour aider.
+
+Cependant, au moment même où les attaques étaient sur le point d'atterrir, Hayashi Nanaya leva doucement sa main, et une lumière dorée fleurit de sa paume.
+
+« Yeux Dorés de Vérité : Perspicacité de l'Œil Céleste. »
+
+Les yeux de Hayashi Nanaya devinrent instantanément d'un or brillant, rayonnant d'une lueur mystérieuse.
+
+Sous le regard de ces yeux dorés, les mouvements de Tayuya et Jirōbō semblèrent ralentir.
+
+Chaque mouvement, chaque intention était complètement percé à jour.
+
+Hayashi Nanaya évita facilement les fils d'araignée de Tayuya, tout en pointant simultanément un doigt.
+
+Un Qi d'Épée transperça instantanément l'attaque de Jirōbō, l'envoyant voler à des dizaines de mètres de là.
+
+« Technique d'Épée de Shushan : Qi d'Épée Comme un Arc-en-ciel ! »
+
+D'innombrables Qi d'Épée éclatèrent du bout des doigts de Hayashi Nanaya, se répandant dans toutes les directions comme une pluie de météores, enveloppant les Quatre d'Otogakure entiers.
+
+Partout où le Qi d'Épée passait, tout était déchiqueté en morceaux.
+
+Les fils d'araignée de Tayuya, les lances d'os de Kidōmaru, et le bouclier à six bras de Sakon furent tous instantanément détruits.
+
+Les quatre hurlèrent, leurs corps projetés simultanément.
+
+Ils s'écrasèrent lourdement contre la falaise lointaine, laissant quatre indentations profondes en forme humaine.
+
+Le processus entier ne prit que le clin d'un œil ; les Quatre d'Otogakure avaient tous été vaincus, perdant leur capacité de combattre.
+
+Orochimaru et Yakushi Kabuto virent cette scène, leurs expressions devenant exceptionnellement laides.
+
+Les Quatre d'Otogakure, même au Deuxième Stade du Sceau Maudit, n'étaient pas de taille face à un seul coup de Hayashi Nanaya ? C'était tout simplement trop terrifiant !
+
+« Orochimaru, tes subordonnés sont trop faibles. »
+
+Hayashi Nanaya dit indifféremment, regardant directement Orochimaru : « Maintenant, c'est à ton tour. »
+
+Le teint d'Orochimaru devint extrêmement sombre ; il comprit qu'il n'y avait aucune chance de gagner aujourd'hui : « Kabuto, nous battons en retraite ! »
+
+« Tu veux t'échapper ? »
+
+Hayashi Nanaya ricana, sa silhouette flashant, et il apparut instantanément devant Orochimaru : « Mouvement des Trois Mille Éclairs ! »
+
+Orochimaru n'eut même pas le temps de réagir avant que sa poitrine ne fût frappée par une paume.
+
+Son corps entier fut envoyé volant à des dizaines de mètres, brisant plusieurs grands arbres avant de s'arrêter.
+
+« Tousse, tousse… »
+
+Orochimaru toussa une bouchée de sang, luttant pour se lever, ses yeux remplis de réticence et de terreur : « Comment est-ce possible… ta vitesse est plus rapide que la dernière fois ! »
+
+Hayashi Nanaya marcha lentement vers Orochimaru, chaque pas portant une pression sans rivale.
+
+« Je l'ai dit auparavant, après avoir absorbé la puissance du Shukaku à Une Queue, ma force s'est élevée à un tout nouveau niveau. »
+
+## Chapitre 103 — La cultivation au stade de Transformation de l'Âme suffit à écraser l'adversaire
+
+« La cultivation au Stade Intermédiaire de la Transformation de l'Âme suffit à écraser un adversaire de ton niveau. »
+
+Une lueur de confusion traversa les yeux d'Orochimaru : « Stade Intermédiaire de la Transformation de l'Âme ? Quel genre de Royaume est-ce ? »
+
+Hayashi Nanaya ne répondit pas, mais continua à marcher vers l'avant.
+
+L'Aura sur son corps devint de plus en plus puissante, comme une montagne en mouvement, pressant Orochimaru jusqu'à ce qu'il ne pût pas reprendre son souffle.
+
+Tsunade observa cette scène de loin, son choc au-delà des mots.
+
+La force de Hayashi Nanaya avait-elle atteint un tel niveau ?
+
+Même un expert de haut niveau dans le Monde Ninja comme Orochimaru est aussi impuissant à lui résister qu'un enfant ?
+
+« Seigneur Orochimaru ! » Yakushi Kabuto se précipita anxieusement, voulant sauver son maître.
+
+Hayashi Nanaya ne tourna même pas la tête, se contentant d'agiter doucement sa main : « Force de Suppression des Huit Désolations ! »
+
+Une force invisible emprisonna instantanément Yakushi Kabuto sur place, incapable de bouger.
+
+Yakushi Kabuto fit de son mieux pour se libérer, mais cette force était aussi lourde qu'une montagne, lui rendant difficile même de respirer.
+
+« Ceci… quel genre de pouvoir est-ce ? » Yakushi Kabuto fut choqué : « Cela a déjà dépassé le cadre du Chakra ! »
+
+Voyant que la situation était critique, Orochimaru savait que les choses ne se termineraient pas bien aujourd'hui.
+
+Une lueur de détermination traversa ses yeux. Il mordit son doigt, se préparant à effectuer une Technique d'Invocation : « Invocation : Descente de Manda ! »
+
+Cependant, juste au moment où le sceau allait être complété.
+
+Hayashi Nanaya était déjà arrivé devant lui, pointant un doigt sur son front : « Arrête ! »
+
+Orochimaru sentit seulement une puissance terrifiante affluer dans son corps.
+
+Elle coupa instantanément sa connexion au Chakra, et la Technique d'Invocation fut interrompue de force.
+
+« Quoi ? Tu peux vraiment couper mon Chakra ? »
+
+Orochimaru regarda Hayashi Nanaya avec terreur, ses yeux remplis d'incrédulité.
+
+Hayashi Nanaya ricana : « Orochimaru, tu te surestimes. »
+
+« À mes yeux, tu n'es rien d'autre qu'un serpent venimeux sur le point de muer, ne posant aucune menace du tout. »
+
+Orochimaru savait qu'il ne pouvait pas échapper à son destin aujourd'hui et ne put s'empêcher de ressentir quelques regrets.
+
+Si ce n'était l'apparition soudaine de Hayashi Nanaya.
+
+Il aurait pu capturer Tsunade avec succès et soigner les blessures sur ses bras.
+
+Mais maintenant, non seulement son plan avait échoué, mais sa vie pourrait aussi être en danger.
+
+Il avait initialement pensé que sa force était au sommet du Monde Ninja.
+
+Même Minato Namikaze, le Quatrième Hokage, n'avait pas pu le vaincre facilement.
+
+L'apparition de Hayashi Nanaya avait complètement renversé sa compréhension.
+
+Un jeune de seulement dix-sept ans, non seulement sa force dépassait de loin celle des gens ordinaires.
+
+Il ne pouvait même pas lui faire face avec son corps immortel dont il était si fier.
+
+« Hayashi Nanaya… » Orochimaru grinça des dents, ses yeux remplis de ressentiment.
+
+« Même si tu me tues aujourd'hui, je ne mourrai pas vraiment. »
+
+« Je sais que tu possèdes diverses méthodes de résurrection, » dit Hayashi Nanaya calmement.
+
+« Mais cette fois, je te ferai expérimenter véritablement ce qu'est le désespoir. »
+
+Après avoir parlé, Hayashi Nanaya dessina une Formation complexe aux pieds d'Orochimaru.
+
+Une lumière dorée l'enveloppa complètement.
+
+« Sceau : Damnation Éternelle ! »
+
+Orochimaru sentit seulement une force terrifiante l'emprisonner complètement.
+
+Toute la puissance, les techniques secrètes et les techniques interdites à l'intérieur de son corps furent scellées couche par couche, incapables d'être utilisées.
+
+« Non ! » Orochimaru laissa échapper un cri strident, ses yeux remplis de désespoir et de peur.
+
+Hayashi Nanaya regarda froidement Orochimaru scellé : « Ce Sceau cible spécifiquement ton corps immortel ; même si tu te réincarnes dans d'autres corps, le Sceau suivra ton Âme. »
+
+« Désormais, tu n'es qu'une personne ordinaire et ne pourras plus jamais utiliser aucun ninjutsu. »
+
+Un regard de peur et de désespoir sans précédent apparut sur le visage d'Orochimaru.
+
+Pour lui, perdre le ninjutsu était plus terrifiant que la mort.
+
+La poursuite de sa vie était de maîtriser tous les ninjutsu du monde et de devenir le Ninja le plus puissant.
+
+Et maintenant, Hayashi Nanaya l'avait réellement transformé en une personne ordinaire !
+
+« Non… impossible… je n'y crois pas… » Orochimaru marmonna pour lui-même, ses yeux devenant flous.
+
+Tsunade et Shizune, ayant été témoins de cette scène de leurs propres yeux, étaient trop choquées pour parler.
+
+La force que Hayashi Nanaya avait affichée avait complètement dépassé le cadre d'un Ninja ; il ressemblait davantage à un Immortel de légende.
+
+Il pouvait emprisonner Orochimaru à volonté, et même Sceller l'Âme de l'adversaire.
+
+Cette capacité approchait déjà du Royaume des dieux.
+
+« Seigneur Hayashi Nanaya… est vraiment trop fort… » Shizune dit doucement, ses yeux remplis d'admiration et de révérence.
+
+Elle avait autrefois pris soin de Hayashi Nanaya quand il était nourrisson, mais n'avait jamais imaginé qu'il grandirait pour devenir une existence aussi terrifiante.
+
+Hayashi Nanaya ignora l'effondrement d'Orochimaru et se tourna pour marcher vers Tsunade : « Sœur, tu vas bien ? »
+
+Tsunade était encore sous le choc, regardant le jeune homme devant elle avec incrédulité : « Nanaya, tu… tu es vraiment devenu aussi fort ? »
+
+Hayashi Nanaya sourit légèrement : « Sœur, j'ai travaillé dur pour devenir plus fort, juste pour pouvoir te protéger et protéger Konoha. »
+
+Des larmes montèrent aux yeux de Tsunade, et des émotions complexes affluèrent dans son cœur.
+
+Fierté, honneur, être émue, et une trace de perte inexplicable.
+
+Le petit nourrisson qui avait autrefois besoin de sa protection avait maintenant grandi en un homme fort capable de la protéger.
+
+« Nanaya… » Tsunade s'avança et serra Hayashi Nanaya dans ses bras étroitement : « Tu as grandi. »
+
+Hayashi Nanaya tendit également la main pour serrer Tsunade, disant doucement : « Sœur, reviens à Konoha avec moi. »
+
+« Konoha a besoin de toi, et j'ai besoin de toi aussi. »
+
+Tsunade resta silencieuse un moment, puis hocha doucement la tête : « D'accord, je retournerai avec toi. »
+
+Hayashi Nanaya prit Tsunade, Shizune, et Orochimaru et Yakushi Kabuto scellés, et retourna au village de Konoha.
+
+Orochimaru fut emprisonné pour attendre le jugement de Konoha.
+
+Tsunade retourna officiellement à Konoha, prenant le rôle de chef du Département Médical, assistant Hayashi Nanaya à gouverner Konoha.
+
+La nouvelle que Hayashi Nanaya avait vaincu Orochimaru et ramené avec succès Tsunade se répandit bientôt dans tout le Monde Ninja.
+
+Elle causa une énorme sensation.
+
+Les réactions des grands Villages Ninja varièrent, mais sans exception, ils ressentirent tous du choc et de l'inquiétude.
+
+La force affichée par le nouveau Hokage de Konoha, Hayashi Nanaya, avait de loin dépassé leur imagination.
+
+…
+
+Bureau du Kazekage.
+
+« Le Cinquième Hokage de Konoha a non seulement soumis nos Elite Jônins, mais a aussi vaincu Orochimaru et ramené la Princesse Tsunade à Konoha ? »
+
+L'Ancien Fūshu laissa tomber le renseignement dans sa main avec choc, regardant les autres Anciens avec incrédulité.
+
+« Qui est exactement ce Hayashi Nanaya ? »
+
+« En seulement quelques courts mois, il a déjà accompli des exploits sans précédent. »
+
+« Non seulement cela, on dit qu'il a également absorbé une partie de la puissance du Shukaku à Une Queue, élevant sa force à un niveau encore plus élevé. »
+
+L'Ancien Xieyong ajouta, sa voix remplie d'une trace d'inquiétude.
+
+« Nous devons réévaluer notre relation avec Konoha, » l'Ancien Fūshu réfléchit un moment.
+
+« Étant donné la force que Hayashi Nanaya a affichée, nous ne sommes plus qualifiés pour être ennemis avec Konoha. »
+
+« Je propose d'envoyer des émissaires à Konoha pour exprimer formellement notre sincérité au Cinquième Hokage et demander l'établissement d'une Alliance. »
+
+Les autres Anciens hochèrent la tête l'un après l'autre, exprimant leur accord.
+
+La force de Hayashi Nanaya était déjà très évidente.
+
+S'ils devaient s'opposer à lui, ce serait sans aucun doute chercher leur propre mort.
+
+Il vaudrait mieux coopérer directement avec lui.
+
+## Chapitre 104 — Opinions des grands Villages Ninja
+
+Village de Konoha, Bureau du Hokage.
+
+Hayashi Nanaya était assis sur la chaise du Hokage, avec une pile de lettres des grands Villages Ninja devant lui.
+
+Ces lettres avaient une chose en commun : elles exprimaient toutes le désir d'établir des relations amicales avec le village de Konoha.
+
+« Il semble que tous les Villages Ninja aient reçu la nouvelle. » Les lèvres de Hayashi Nanaya se courbèrent légèrement alors que son regard balayait les lettres sur le bureau.
+
+Shizune se tenait sur le côté et rapporta respectueusement : « Hokage-sama, en seulement une semaine… »
+
+« Nous avons reçu des demandes d'alliance du Village Caché du Sable, du Village Caché de la Brume, du Village de l'Herbe, et de nombreux autres Villages Ninja. »
+
+« Même le Village Caché des Nuages, qui a toujours eu des relations tendues avec le village de Konoha, a envoyé des émissaires pour exprimer leur amitié. »
+
+« C'était à prévoir. » Hayashi Nanaya dit calmement : « Alors que la nouvelle se répandait que nous avions soumis les ninjas d'élite du Village Caché du Sable… »
+
+« Et vaincu Orochimaru et ramené Tsunade, les Villages Ninja ont clairement réalisé la force du village de Konoha. »
+
+Shizune hocha la tête, ses yeux remplis d'admiration : « Le prestige de Hokage-sama s'est répandu dans tout le Monde Ninja. »
+
+Hayashi Nanaya secoua légèrement la tête : « Ils ne m'admirent pas ; ils craignent ma puissance. »
+
+« Dans le Monde Ninja, la loi de la jungle a toujours été la règle de fer. »
+
+« La raison pour laquelle les divers Villages Ninja montrent faveur est simplement parce qu'ils sont convaincus de ne pas pouvoir rivaliser avec le village de Konoha. »
+
+En entendant cela, un regard complexe flasha dans les yeux de Shizune.
+
+Hokage-sama était si jeune, possédant déjà des perspectives aussi matures, la faisant soupirer aux merveilles du destin.
+
+Cependant, avant qu'elle eût beaucoup de temps pour réfléchir, un coup fut frappé à la porte.
+
+« Entrez. » Hayashi Nanaya dit, levant les yeux.
+
+Un Ninja Anbu poussa la porte et s'agenouilla sur un genou : « Hokage-sama, l'Organisation Akatsuki semble avoir commencé à bouger. »
+
+« Selon les renseignements, ils semblent chasser les Jinchûriki des divers Villages Ninja. »
+
+Une lueur acide flasha dans les yeux de Hayashi Nanaya : « Cela a-t-il enfin commencé ? »
+
+« Transmettez l'ordre d'augmenter la vigilance et de surveiller de près les mouvements de tous les individus suspects. »
+
+« En même temps, renforcez secrètement la protection des Jinchûriki. »
+
+« Compris, Hokage-sama ! » Après avoir reçu l'ordre, le Ninja Anbu disparut rapidement.
+
+Shizune regarda Hayashi Nanaya, se sentant quelque peu inquiète : « Hokage-sama, quel est le but de l'Organisation Akatsuki ? »
+
+Hayashi Nanaya jeta son regard vers le ciel lointain à l'extérieur de la fenêtre : « Cette organisation veut collecter toutes les Bêtes à Queues. Leur objectif ultime est probablement de ressusciter le Dix-Queues. »
+
+« Le Dix-Queues ? » Les yeux de Shizune s'écarquillèrent : « N'est-ce pas une créature qui n'existe que dans les légendes ? »
+
+« Les légendes découlent souvent de la réalité. » Hayashi Nanaya répondit calmement.
+
+« Et la raison pour laquelle j'ai absorbé une partie de la puissance du Shukaku à Une Queue était de me préparer à cette menace. »
+
+En entendant cela, Shizune fut choquée.
+
+Hokage-sama avait longtemps anticipé les actions de l'Organisation Akatsuki.
+
+Il avait même fait des préparatifs à l'avance.
+
+Ce genre de vision stratégique était bien au-delà de celui des gens ordinaires.
+
+« Ne t'inquiète pas. » Remarquant l'anxiété de Shizune, Hayashi Nanaya la réconforta doucement.
+
+« J'ai déjà tout arrangé. Les actions de l'Organisation Akatsuki sont toutes sous contrôle. »
+
+Pendant ce temps, à la base de l'Organisation Akatsuki.
+
+Nagato, Konan et « Tobi » discutaient du prochain plan d'action.
+
+« Le Jinchûriki de la Une Queue a été contrôlé par Hayashi Nanaya du village de Konoha, et le plan a été affecté. »
+
+Nagato dit calmement, une étrange lueur flashant dans son Rinnegan.
+
+« Non seulement cela, Hayashi Nanaya semble avoir absorbé une partie de la puissance du Shukaku à Une Queue, et sa force a considérablement augmenté. »
+
+Konan ajouta, son expression solennelle.
+
+« Hayashi Nanaya… » La voix de « Tobi, » qui portait un masque spiralé orange, était basse, et une lueur de vigilance flasha dans ses yeux.
+
+« Ce nom a attiré trop d'attention dans le Monde Ninja récemment. »
+
+« Ses capacités dépassent de loin nos attentes. »
+
+« Tobi » était, en fait, Uchiha Obito, mais seulement lui connaissait cette identité pour le moment.
+
+La rencontre avec la personne mystérieuse à la pierre commémorative du village de Konoha la dernière fois le faisait encore ressentir une peur persistante.
+
+Les allées et venues de la personne mystérieuse qui utilisait le Dieu de la Foudre et le Rasengan étaient encore inconnues.
+
+Bien qu'Obito possédât la capacité du Kamui, il ressentait encore un sentiment d'impuissance face à cette personne mystérieuse.
+
+Nagato fronça légèrement les sourcils : « Selon le plan original, nous devrions les capturer dans l'ordre du nombre de queues. »
+
+« Mais maintenant que la Une Queue ne peut pas être facilement obtenue, nous devons ajuster le plan. »
+
+« Je suggère de capturer d'autres Bêtes à Queues en premier. » Konan analysa calmement.
+
+« Bien que le village de Konoha soit puissant, il ne peut pas protéger tous les Jinchûriki en même temps. »
+
+Juste au moment où les trois discutaient, une ombre noire apparut silencieusement dans le coin de la base.
+
+Cette silhouette portait la cape noire à nuages rouges de l'Organisation Akatsuki, son visage caché dans les ombres.
+
+Il était resté ici spécifiquement pour surveiller les actions de l'Organisation Akatsuki.
+
+Il avait réussi à s'infiltrer à l'intérieur de l'Organisation Akatsuki, déguisant son identité par des moyens spéciaux, et obtenait des renseignements de première main.
+
+« Bonne suggestion. » Tobi approuva et hocha la tête.
+
+« Puisque la Une Queue ne peut pas être obtenue pour le moment, commençons par la Deux-Queues. »
+
+Nagato réfléchit un moment et finit par hocher la tête en accord : « Alors c'est décidé. »
+
+« Hidan et Kakuzu, vous êtes responsables de capturer le Jinchûriki de la Deux-Queues. »
+
+Le Clone de Hayashi Nanaya dans le coin vit cela, et une lumière dorée flasha dans ses yeux.
+
+Il enregistra le plan de l'Organisation Akatsuki, se préparant à envoyer le renseignement à son corps principal au moment opportun.
+
+Pendant ce temps, Hayashi Nanaya collectait également des informations sur Nagato.
+
+En tant que Pain, qui possédait le Rinnegan, la force de Nagato était seconde à nulle autre dans l'Organisation Akatsuki.
+
+Pour résoudre complètement la menace de l'Organisation Akatsuki, Nagato était un ennemi redoutable qu'il fallait affronter.
+
+Surtout les capacités des Six Voies de Pain ; même Hayashi Nanaya n'osait pas les prendre à la légère.
+
+Bien qu'un Cultivateur soit puissant, Hayashi Nanaya comprenait également la terreur du Rinnegan.
+
+Village de Konoha, le Jinchûriki du Neuf-Queues Naruto suivait un entraînement spécial.
+
+« Huff… huff… » Naruto haletait lourdement, couvert de sueur.
+
+Debout devant lui se trouvait Minato Namikaze, qui le guidait pour apprendre le Rasengan.
+
+« Naruto, tu progresses très rapidement. » Minato Namikaze dit avec un sourire, ses yeux remplis d'approbation.
+
+« Mais pour maîtriser le Rasengan, tu as besoin de plus de pratique. »
+
+Naruto essuya la sueur de son front et montra un sourire radieux : « Quatrième Hokage-sama, je travaillerai dur assurément ! »
+
+Minato Namikaze regarda le garçon devant lui qui avait une apparence similaire à la sienne, et son cœur était rempli d'émotion.
+
+Si ce n'était l'aide de Hayashi Nanaya, il n'aurait jamais eu la chance de passer du temps avec son propre fils.
+
+« Naruto, il y a quelque chose que je dois te dire. » L'expression de Minato Namikaze devint soudainement sérieuse.
+
+« Qu'est-ce que c'est, Quatrième Hokage-sama ? » demanda Naruto avec curiosité.
+
+Minato Namikaze prit une profonde inspiration : « Je… suis en fait ton père. »
+
+« Quoi ?! » Les yeux de Naruto s'écarquillèrent, regardant l'homme devant lui avec incrédulité.
+
+« Tu… tu es mon… père ? »
+
+Minato Namikaze hocha doucement la tête : « Oui, Naruto. »
+
+« Je suis ton père. Pendant l'Incident du Neuf-Queues à l'époque, pour protéger le village de Konoha et toi, j'ai dû me sacrifier et Sceller le Neuf-Queues à l'intérieur de toi. »
+
+« Et ta mère, Kushina, s'est aussi sacrifiée dans cet incident. »
+
+## Chapitre 105 — Les sanglots de Naruto
+
+Naruto resta immobile, son expression passant du choc à l'incrédulité, puis à la joie, et finalement aux sanglots.
+
+Des larmes coulèrent sur son visage sans qu'il s'en rendît compte.
+
+« Père… j'ai un père… » Naruto marmonna pour lui-même, les larmes coulant de façon incontrôlable.
+
+Minato Namikaze s'avança et serra Naruto dans ses bras étroitement : « Je suis désolé, Naruto, de t'avoir laissé porter tant de choses seul… »
+
+Père et fils s'embrassèrent étroitement, des années de longing et d'émotions libérées en ce moment.
+
+« Mais… n'es-tu pas déjà… » Naruto leva la tête et demanda avec confusion.
+
+Minato Namikaze sourit légèrement : « C'est Hayashi Nanaya qui m'a aidé. »
+
+« Il a utilisé une technique spéciale qui m'a permis de revenir brièvement dans ce monde. »
+
+« Cependant, il ne me reste plus beaucoup de temps. »
+
+« Que veux-tu dire ? » demanda Naruto avec empressement.
+
+« Je ne peux rester dans ce monde que pour une courte période, puis je dois retourner à la Terre Pure, » expliqua Minato Namikaze doucement : « mais avant de partir, je veux t'enseigner plus de choses pour faire de toi un Ninja exceptionnel. »
+
+Des larmes montèrent à nouveau aux yeux de Naruto, mais il les essuya rapidement et hocha la tête fermement.
+
+« Je travaillerai dur, Père ! Je te rendrai assurément fier ! »
+
+Minato Namikaze sourit et ébouriffa les cheveux blonds de Naruto : « Je suis déjà très fier, Naruto. »
+
+« Tu es la fierté de Kushina et de moi. »
+
+…
+
+Village Caché des Nuages, Bureau du Raikage.
+
+« Le Cinquième Hokage de Konoha est-il réellement capable de rendre un Ninja comme Orochimaru incapable de résister ? »
+
+Le Quatrième Raikage A frappa son poing sur le bureau, son corps fort rempli d'oppression.
+
+« Quelle est exactement l'origine de ce gamin ? »
+
+« Selon les renseignements, Hayashi Nanaya a non seulement vaincu Orochimaru, mais a aussi tué le Shinigami, et a même absorbé une partie de la puissance du Shukaku à Une Queue. »
+
+Darui rapporta : « La force qu'il a affichée a déjà dépassé la catégorie des ninjas ordinaires. »
+
+« Hmph, est-il vraiment si fort ? » Le Raikage renifla froidement, bien qu'une trace de vigilance flashât dans ses yeux.
+
+« Cependant, ce n'est pas impossible pour le Hokage de Konoha d'avoir ce genre de force. »
+
+« La puissance du Mokuton du Premier Hokage était déjà proche d'un dieu. »
+
+« Raikage-sama, je pense que nous devrions éviter le conflit avec Konoha. »
+
+Killer Bee suggéra : « J'ai peur que même toi, tu aurais du mal à rivaliser avec la force de ce gamin. »
+
+Le Raikage resta silencieux un moment, et finit par hocher la tête : « Transmettez l'ordre de renforcer les relations diplomatiques avec Konoha et d'éviter toute action qui pourrait déclencher un conflit. »
+
+« En même temps, envoyez un émissaire à Konoha pour rencontrer le Cinquième Hokage. »
+
+« Compris, Raikage-sama. » Darui répondit respectueusement.
+
+Le Raikage se tourna vers la fenêtre, son regard scrutant le lointain : « Ce Hayashi Nanaya… j'ai peur qu'il ne change le paysage de tout le Monde Ninja. »
+
+…
+
+Iwagakure, Bureau du Tsuchikage.
+
+« Le Cinquième Hokage de Konoha a successivement résolu les menaces d'Orochimaru et de Sunagakure, et maintenant divers Villages Ninja se bousculent pour établir des relations amicales avec Konoha. »
+
+Kitsuchi rapporta au Troisième Tsuchikage Ōnoki.
+
+Ōnoki fronça les sourcils, ses doigts tapotant sur le bureau : « Hayashi Nanaya… ce nom s'est répandu comme une traînée de poudre récemment. »
+
+« On dit qu'il possède le pouvoir terrifiant de tuer le Shinigami. »
+
+« Oui, Tsuchikage-sama. Selon nos renseignements, la force de Hayashi Nanaya a de loin dépassé celle des ninjas ordinaires, et pourrait même approcher la légende du Sage des Six Voies. »
+
+« Hmph, si exagéré que ça ? » Ōnoki ricana, mais la vigilance dans ses yeux ne diminua pas.
+
+« Cependant, Konoha a toujours été plein de talents, en particulier la position de Hokage, qui n'a jamais été accordée à une personne incompétente. »
+
+« Tsuchikage-sama, devrions-nous envoyer un émissaire à Konoha pour exprimer notre amitié ? » demanda Kitsuchi.
+
+Ōnoki réfléchit un moment, et finit par hocher la tête en accord : « Arrangez cela. »
+
+« Dans les circonstances actuelles, se lier d'amitié avec Konoha est le choix le plus sage. »
+
+« En même temps, surveillez de près chaque mouvement de Hayashi Nanaya et collectez plus d'informations à son sujet. »
+
+« Compris, Tsuchikage-sama. »
+
+Ōnoki se tourna vers la fenêtre, ses yeux devenant profonds : « La situation dans le Monde Ninja subit d'immenses changements. »
+
+« Et tout cela provient d'un jeune homme… c'est vraiment incroyable. »
+
+…
+
+Village de Konoha, Base de la Racine.
+
+Danzo était assis dans la pièce sombre, son expression incertaine.
+
+« Même Orochimaru a été facilement soumis par Hayashi Nanaya ? » Danzo marmonna pour lui-même, une lumière complexe flashant dans ses yeux.
+
+En tant que côté sombre de Konoha, Danzo était à la fois surpris et méfiant envers l'ascension de Hayashi Nanaya.
+
+Un jeune homme possédant réellement un pouvoir aussi terrifiant, ce qui le faisait ressentir une trace de malaise.
+
+« Mais il est finalement le Hokage de Konoha, et sa force signifie aussi la force de Konoha. »
+
+Danzo se réconforta : « Tant qu'il pense vraiment à Konoha, je n'ai pas besoin d'agir pour le moment. »
+
+Cependant, l'ambition dans le cœur de Danzo ne s'estompa pas.
+
+Il aspirait toujours à devenir Hokage un jour et à contrôler tout à Konoha.
+
+Mais face à la force que Hayashi Nanaya avait affichée.
+
+Il dut temporairement réfréner son avantage et attendre patiemment une opportunité.
+
+« Surveillez de près chaque mouvement de Hayashi Nanaya. »
+
+Danzo ordonna à ses ninjas de la Racine : « Toute situation anormale doit m'être rapportée immédiatement. »
+
+« Oui, Danzo-sama. » Le Ninja de la Racine répondit respectueusement, puis disparut dans les ténèbres.
+
+Danzo était assis seul dans la pièce, perdu dans ses pensées.
+
+Ce qu'il ne savait pas, c'est que chacun de ses mouvements avait depuis longtemps été remarqué par Hayashi Nanaya.
+
+La capacité de perception de Hayashi Nanaya dépassait de loin celle des ninjas ordinaires.
+
+Pour les petits tours de Danzo, Hayashi Nanaya choisit simplement de les ignorer pour le moment.
+
+…
+
+Base temporaire de l'Organisation Akatsuki.
+
+« Comment se passe la collecte de renseignements sur le Jinchûriki de la Deux-Queues ? » Nagato demanda à Kakuzu et Hidan, qui enquêtaient.
+
+Kakuzu répondit calmement : « Le Jinchûriki de la Deux-Queues a été élevé par Yugito et effectue actuellement une mission au Village Caché des Nuages. »
+
+« Selon les renseignements, sa force n'est pas mauvaise, en particulier la puissance de la Deux-Queues, qui peut produire des flammes puissantes. »
+
+« Des flammes ? Haha, la meilleure façon de traiter les flammes est de les sacrifier à Seigneur Jashin ! »
+
+Hidan rit sauvagement, léchant la lame de sa faucheuse, ses yeux flashant d'une lumière fanatique.
+
+Nagato fronça légèrement les sourcils, ne se souciant pas de l'arrogance de Hidan : « Rappelez-vous, notre objectif est de capturer le Jinchûriki, essayez de ne pas la tuer. »
+
+« La mort causera la dissipation temporaire de la Bête à Queues, apportant des ennuis à notre plan. »
+
+« Compris, compris, » Hidan agita la main avec impatience.
+
+« Mais si elle résiste férocement, je ne peux pas garantir de ne pas aller trop loin. »
+
+Kakuzu jeta un regard froid à Hidan : « Contrôle tes désirs, ou je te tuerai moi-même. »
+
+« Hé hé, Kakuzu, toi mon gars, tu n'as vraiment aucun sens de l'humour ! » Hidan se plaignit avec insatisfaction.
+
+Dans le coin, le Clone de Hayashi Nanaya écoutait tranquillement leur conversation.
+
+L'Organisation Akatsuki avait déjà commencé à agir, et la cible était le Jinchûriki de la Deux-Queues. Ce renseignement devait être envoyé à Konoha dès que possible.
+
+Le Clone quitta silencieusement la base, trouva un endroit caché, et commença à transmettre l'information.
+
+Il forma des sceaux avec ses mains, et une aura invisible fut transmise au loin, communiquant le plan de l'Organisation Akatsuki au corps principal.
+
+## Chapitre 106 — La force du Clone de Hayashi Nanaya
+
+Hayashi Nanaya, qui s'occupait des affaires officielles au Bureau du Hokage, rétrécit ses yeux alors qu'il recevait un message de son Clone.
+
+« L'Organisation Akatsuki a commencé son opération, et la cible est le Jinchûriki de la Deux-Queues. » Hayashi Nanaya marmonna pour lui-même.
+
+« Il semble qu'ils agissent toujours dans l'ordre des numéros des Bêtes à Queues, seulement ils ont sauté la Une Queue. »
+
+Hayashi Nanaya convoqua immédiatement des Elite Jônins comme Kakashi et Might Guy : « J'ai besoin que vous vous rendiez immédiatement au Village Caché des Nuages. »
+
+« Contactez secrètement le Jinchûriki de la Deux-Queues et avertissez-la de faire attention à une attaque de l'Organisation Akatsuki. »
+
+« Hokage-sama, cela causera-t-il un malentendu avec le Village Caché des Nuages ? » demanda Kakashi avec prudence.
+
+Hayashi Nanaya sourit légèrement : « Ne t'inquiète pas. »
+
+« J'ai déjà arrangé que quelqu'un communique avec le Raikage. »
+
+« Cette opération vise à contrer conjointement la menace de l'Organisation Akatsuki. »
+
+« Compris, Hokage-sama. » Après avoir reçu les ordres, Kakashi et les autres partirent immédiatement.
+
+Hayashi Nanaya se tenait près de la fenêtre, scrutant le lointain.
+
+L'opération de l'Organisation Akatsuki avait commencé, et les vents et les nuages du Monde Ninja étaient sur le point de se lever à nouveau.
+
+Mais cette fois, il était pleinement préparé.
+
+À l'extérieur du village de Konoha, dans une grotte cachée.
+
+Hayashi Nanaya était assis en tailleur au centre de la Formation de Rassemblement d'Esprit, son corps émettant de puissantes fluctuations de pouvoir spirituel.
+
+Depuis qu'il avait absorbé une partie de la puissance du Shukaku à Une Queue, sa cultivation avait atteint le Stade Intermédiaire de la Transformation de l'Âme.
+
+Mais pour Hayashi Nanaya, c'était loin d'être suffisant.
+
+« La puissance du Neuf-Queues est la clé… » Hayashi Nanaya marmonna, ses yeux flashant d'une lumière acérée.
+
+Bien que Naruto fût le Jinchûriki du Neuf-Queues, Hayashi Nanaya n'avait pas l'intention d'extraire directement la puissance du Neuf-Queues de Naruto.
+
+Cela pourrait non seulement nuire à Naruto, mais aussi causer beaucoup d'ennuis inutiles.
+
+Heureusement, Minato Namikaze fournissait une autre possibilité.
+
+« La puissance du Yang Neuf-Queues… » Hayashi Nanaya pensa au Chakra du Yang Neuf-Queues scellé à l'intérieur de Minato Namikaze.
+
+Pendant l'Incident du Neuf-Queues, Minato Namikaze avait utilisé le Sceau de la Mort du Shinigami pour diviser le Neuf-Queues en deux.
+
+Le Yin Neuf-Queues avait été scellé à l'intérieur de Naruto, tandis que le Yang Neuf-Queues avait été scellé à l'intérieur de son propre corps.
+
+Maintenant, Minato Namikaze avait accepté de remettre la puissance du Yang Neuf-Queues à Hayashi Nanaya avant de retourner à la Terre Pure.
+
+Pour Hayashi Nanaya, c'était sans aucun doute une Opportunité importante de Percée.
+
+« La Formation de Rassemblement d'Esprit est prête ; j'attends juste l'arrivée du Senior Minato. »
+
+Hayashi Nanaya se leva et vérifia chaque rune de la Formation de Rassemblement d'Esprit.
+
+Cette Formation pouvait non seulement l'aider à absorber la puissance du Yang Neuf-Queues, mais aussi s'assurer qu'il ne serait pas érodé par le Chakra du Neuf-Queues pendant le processus d'absorption.
+
+Juste à ce moment, une silhouette dorée apparut à l'entrée de la grotte.
+
+« Nanaya, je suis là. » Minato Namikaze marcha dans la grotte avec un sourire, son visage portant une expression de soulagement.
+
+Hayashi Nanaya s'inclina respectueusement : « Senior Minato, merci pour votre confiance. »
+
+Minato Namikaze agita la main : « Pas besoin d'être poli. J'ai déjà dit à Naruto que j'étais son père. »
+
+« Il… l'a très bien accepté. »
+
+« C'est bien. » Hayashi Nanaya hocha la tête, se sentant heureux pour Naruto dans son cœur.
+
+Minato Namikaze était sur le point de partir, mais au moins Naruto connaissait déjà sa propre histoire de vie.
+
+C'était une consolation pour lui.
+
+« Mon temps s'épuise, Nanaya. » L'expression de Minato Namikaze devint sérieuse : « Commençons. »
+
+Hayashi Nanaya hocha la tête et guida Minato Namikaze au centre de la Formation de Rassemblement d'Esprit : « Veuillez vous asseoir ici, Senior. »
+
+« Le processus suivant pourrait être un peu inconfortable, mais il ne mettra pas votre vie en danger. »
+
+Minato Namikaze s'assit en tailleur et prit une profonde inspiration : « Je suis prêt. »
+
+« Nanaya, promets-moi une chose. »
+
+« Veuillez parler. »
+
+« Protège bien Naruto… protège bien Konoha. » Les yeux de Minato Namikaze étaient remplis de confiance et d'attente.
+
+Hayashi Nanaya hocha la tête solennellement : « Je jure par mon Cœur de Dao que je protégerai assurément Naruto et Konoha. »
+
+Ayant reçu la promesse de Hayashi Nanaya, Minato Namikaze ferma les yeux avec satisfaction.
+
+Il commença à libérer le Chakra du Yang Neuf-Queues scellé à l'intérieur de son corps.
+
+La Formation commença à briller, et un Chakra puissant jaillit du corps de Minato Namikaze, se transformant en flammes dorées qui tourbillonnaient dans l'air.
+
+Cette puissance était extrêmement vaste, pleine de violence et de destructivité, mais sous l'effet de la Formation de Rassemblement d'Esprit, elle devint relativement docile.
+
+Hayashi Nanaya forma des Sceaux avec ses mains et commença à guider cette puissance : « Technique de la Rosée Spirituelle aux Neuf Fleurs ! »
+
+Les flammes dorées se rapprochèrent progressivement de Hayashi Nanaya, enveloppées par son pouvoir spirituel, et furent absorbées dans son corps petit à petit.
+
+Le processus entier dura pendant trois heures complètes.
+
+Le corps de Hayashi Nanaya continuait à changer, et son aura devenait de plus en plus forte.
+
+Finalement, quand le dernier filament du Chakra du Yang Neuf-Queues fut absorbé, le corps de Minato Namikaze commença à devenir transparent.
+
+« Il semble… que mon temps soit venu. » Minato Namikaze dit avec un sourire, son corps se transformant progressivement en points de lumière dorée.
+
+Hayashi Nanaya ouvrit les yeux, qui brillaient d'une splendeur sans précédent : « Merci, Senior Minato. »
+
+« Avez-vous des paroles que vous voulez que je transmette à Naruto ? »
+
+Minato Namikaze réfléchit un moment et finit par secouer la tête : « Pas besoin, nous avons déjà dit nos adieux. »
+
+« Juste… dis-lui que sa mère et moi avons toujours été fiers de lui. »
+
+« Je le ferai. » Hayashi Nanaya promit solennellement.
+
+Le corps de Minato Namikaze se transforma en d'innombrables points de lumière dorée, se dissipant dans l'air et retournant à la Terre Pure.
+
+Hayashi Nanaya s'assit en tailleur où il était et commença à raffiner le Chakra du Yang Neuf-Queues à l'intérieur de son corps.
+
+Cette puissance était beaucoup plus puissante et complexe que le Chakra du Shukaku à Une Queue.
+
+En tant que chef des Bêtes à Queues, la puissance du Neuf-Queues était naturellement extraordinaire.
+
+Surtout le Yang Neuf-Queues, qui représentait une puissance positive, était plein de vitalité et de vigueur.
+
+Le pouvoir spirituel de Hayashi Nanaya fusionna avec ce Chakra, formant un cycle parfait à l'intérieur de son corps.
+
+La Technique de la Rosée Spirituelle aux Neuf Fleurs opéra à l'extrême, convertissant progressivement ce Chakra en pouvoir spirituel pur.
+
+« Boum ! »
+
+Une vague d'air invisible éclata du corps de Hayashi Nanaya.
+
+La grotte entière trembla à cause de cela.
+
+Sa cultivation franchit le Goulot d'étranglement en ce moment, atteignant le Stade Avancé de la Transformation de l'Esprit !
+
+« Stade Avancé de la Transformation de l'Esprit… » Hayashi Nanaya ouvrit les yeux, sentant le pouvoir tumultueux à l'intérieur de son corps.
+
+« Un pas de plus, et ce sera le Stade du Raffinement du Vide. »
+
+Dans le Monde de la Cultivation, le Stade du Raffinement du Vide était déjà un Royaume très élevé.
+
+Une fois entré dans ce Royaume, un Cultivateur pouvait accomplir la transformation entre le vide et la réalité et posséder des Capacités Divines incroyables.
+
+Et dans un monde de basse dimension comme le Monde Ninja, le Stade Avancé de la Transformation de l'Esprit de Hayashi Nanaya était déjà une existence invincible.
+
+Même si le Sage des Six Voies réapparaissait, il lui serait probablement difficile d'ébranler sa position.
+
+« Ensuite, il est temps de s'occuper de l'Organisation Akatsuki. » Hayashi Nanaya se leva, ses yeux flashant d'une lumière ferme.
+
+Près du Village Caché des Nuages.
+
+Le Jinchûriki de la Deux-Queues, Yugito, venait de terminer une mission et retournait au Village Caché des Nuages.
+
+Elle était belle en apparence et agile dans ses mouvements, une Elite Jônin du Village Caché des Nuages.
+
+« Quelle mission ennuyeuse. » Yugito se plaignit, s'étirant : « Je n'ai même pas eu l'occasion de faire un mouvement. »
+
+Soudain, elle ressentit un sentiment de crise.
+
+Ses yeux devinrent vigilants, et son corps prit instinctivement une posture défensive.
+
+« Sortez, je sais que vous êtes là. » Yugito dit froidement, son regard balayant les bois environnants.
+
+*Fin des chapitres 102 à 106.*
+
+*À suivre — Les chapitres 107 à 111 seront prêts sur demande.*
