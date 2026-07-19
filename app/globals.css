@@ -1,0 +1,155 @@
+@import "tailwindcss";
+
+/* ------------------------------------------------------------------ */
+/*  Modes de couleur — des nuances sombres douces, jamais agressives  */
+/* ------------------------------------------------------------------ */
+
+:root,
+[data-mode="abysse"] {
+  --bg: oklch(0.155 0.018 295);
+  --bg-deep: oklch(0.13 0.016 295);
+  --surface: oklch(0.185 0.02 295);
+  --raised: oklch(0.225 0.022 295);
+  --line: oklch(0.28 0.02 295);
+  --ink: oklch(0.89 0.012 290);
+  --mut: oklch(0.72 0.016 290);
+  --faint: oklch(0.55 0.018 290);
+  --accent-l: 0.74;
+  --accent-soft-alpha: 12%;
+  --shadow: 0 12px 40px -12px oklch(0 0 0 / 0.55);
+}
+
+[data-mode="encre"] {
+  --bg: oklch(0.165 0.025 255);
+  --bg-deep: oklch(0.14 0.022 255);
+  --surface: oklch(0.195 0.027 255);
+  --raised: oklch(0.235 0.03 255);
+  --line: oklch(0.29 0.028 255);
+  --ink: oklch(0.89 0.01 250);
+  --mut: oklch(0.72 0.014 250);
+  --faint: oklch(0.55 0.016 250);
+  --accent-l: 0.74;
+  --accent-soft-alpha: 12%;
+  --shadow: 0 12px 40px -12px oklch(0 0 0 / 0.55);
+}
+
+[data-mode="cendre"] {
+  --bg: oklch(0.2 0.005 270);
+  --bg-deep: oklch(0.17 0.005 270);
+  --surface: oklch(0.23 0.006 270);
+  --raised: oklch(0.27 0.007 270);
+  --line: oklch(0.32 0.008 270);
+  --ink: oklch(0.85 0.006 270);
+  --mut: oklch(0.69 0.007 270);
+  --faint: oklch(0.53 0.008 270);
+  --accent-l: 0.72;
+  --accent-soft-alpha: 11%;
+  --shadow: 0 12px 40px -12px oklch(0 0 0 / 0.5);
+}
+
+[data-mode="sepia-nuit"] {
+  --bg: oklch(0.175 0.014 60);
+  --bg-deep: oklch(0.15 0.013 60);
+  --surface: oklch(0.205 0.016 62);
+  --raised: oklch(0.245 0.018 64);
+  --line: oklch(0.3 0.02 65);
+  --ink: oklch(0.87 0.028 80);
+  --mut: oklch(0.7 0.03 78);
+  --faint: oklch(0.54 0.028 75);
+  --accent-l: 0.73;
+  --accent-soft-alpha: 13%;
+  --shadow: 0 12px 40px -12px oklch(0 0 0 / 0.55);
+}
+
+[data-mode="papier"] {
+  --bg: oklch(0.958 0.011 85);
+  --bg-deep: oklch(0.935 0.013 83);
+  --surface: oklch(0.975 0.008 88);
+  --raised: oklch(0.99 0.004 90);
+  --line: oklch(0.87 0.015 80);
+  --ink: oklch(0.3 0.022 60);
+  --mut: oklch(0.45 0.024 62);
+  --faint: oklch(0.6 0.022 65);
+  --accent-l: 0.5;
+  --accent-soft-alpha: 14%;
+  --shadow: 0 10px 30px -12px oklch(0.4 0.03 70 / 0.25);
+}
+
+/* ---------------------------- Accents ----------------------------- */
+
+:root,
+[data-accent="violet"] { --accent-c: 0.16; --accent-h: 295; }
+[data-accent="or"]     { --accent-c: 0.125; --accent-h: 85; }
+[data-accent="jade"]   { --accent-c: 0.115; --accent-h: 165; }
+[data-accent="azur"]   { --accent-c: 0.12; --accent-h: 235; }
+[data-accent="rose"]   { --accent-c: 0.14; --accent-h: 350; }
+[data-accent="braise"] { --accent-c: 0.15; --accent-h: 40; }
+
+:root {
+  --accent: oklch(var(--accent-l) var(--accent-c) var(--accent-h));
+  --accent-soft: oklch(var(--accent-l) var(--accent-c) var(--accent-h) / var(--accent-soft-alpha));
+  --accent-line: oklch(var(--accent-l) var(--accent-c) var(--accent-h) / 32%);
+  --accent-glow: oklch(var(--accent-l) var(--accent-c) var(--accent-h) / 20%);
+}
+
+@theme inline {
+  --color-base: var(--bg);
+  --color-deep: var(--bg-deep);
+  --color-surface: var(--surface);
+  --color-raised: var(--raised);
+  --color-line: var(--line);
+  --color-ink: var(--ink);
+  --color-mut: var(--mut);
+  --color-faint: var(--faint);
+  --color-accent: var(--accent);
+  --color-accent-soft: var(--accent-soft);
+  --color-accent-line: var(--accent-line);
+  --font-read: var(--font-read);
+  --font-ui: var(--font-ui);
+}
+
+html {
+  background: var(--bg);
+  color: var(--ink);
+  transition: background-color 0.35s ease, color 0.35s ease;
+  -webkit-text-size-adjust: 100%;
+}
+
+body {
+  font-family: var(--font-ui), system-ui, sans-serif;
+  min-height: 100dvh;
+}
+
+::selection {
+  background: var(--accent-glow);
+}
+
+/* Barre de défilement discrète */
+* {
+  scrollbar-width: thin;
+  scrollbar-color: var(--line) transparent;
+}
+
+/* ------------------------- Prose de lecture ------------------------ */
+
+.prose-read {
+  font-family: var(--font-read), Georgia, serif;
+  text-rendering: optimizeLegibility;
+  font-feature-settings: "liga", "kern";
+}
+
+.prose-read > * + * {
+  margin-top: 1.1em;
+}
+
+.prose-read p {
+  text-wrap: pretty;
+  hyphens: auto;
+  -webkit-hyphens: auto;
+}
+
+.halo {
+  background:
+    radial-gradient(60% 45% at 50% 0%, var(--accent-glow), transparent 70%),
+    var(--bg);
+}

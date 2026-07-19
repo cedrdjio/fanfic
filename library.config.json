@@ -1,0 +1,17 @@
+{
+  "contentRoot": "content",
+  "novels": [
+    {
+      "dir": "chapitres",
+      "slug": "le-souverain-du-dao",
+      "title": "Le Souverain du Dao",
+      "subtitle": "Fanfiction Naruto — réécriture originale",
+      "author": "Kurogami Shin (黒神 真)",
+      "description": "Kurogami Shin n'est pas né dans le monde ninja. Il y a été jeté, nourrisson, avec les souvenirs intacts d'une autre vie — et un don que ce monde n'a jamais connu : la Compréhension Défiant les Cieux. Recueilli par Tsunade au bord d'un ruisseau, il devient le premier cultivateur du monde ninja — et il n'a aucune intention de rester le seul.",
+      "tags": ["Naruto", "Cultivation", "Réécriture", "En cours"],
+      "status": "En cours",
+      "accent": "violet",
+      "plannedChapters": 100
+    }
+  ]
+}
