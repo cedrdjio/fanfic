@@ -7300,3 +7300,905 @@ Entendant cela, les coins de la bouche de Hayashi Nanaya se courbèrent légère
 *Fin des chapitres 107 à 111.*
 
 *À suivre — Les chapitres 112 à 116 seront prêts sur demande.*
+# L'Immortel de Konoha
+### Traduction française — Chapitres 117 à 121
+
+## Chapitre 117 — L'équilibre ne peut être atteint
+
+Des années d'hostilité et de soupçons furent balayées en cet instant même.
+
+Le Monde Ninja semblait enfin avoir vu poindre l'aube d'une véritable paix.
+
+Mais à cet instant précis, Hayashi Nanaya fronça soudain les sourcils et leva les yeux vers le ciel.
+
+« Seigneur Hayashi Nanaya, qu'y a-t-il ? » Uzumaki Naruto perçut vivement l'anomalie chez le Hokage.
+
+« Il y a une fluctuation d'Âme extrêmement puissante, » dit Hayashi Nanaya d'une voix basse. « Extrêmement puissante, peut-être comparable au niveau divin. »
+
+« Elle s'approche de Konoha… »
+
+À peine Hayashi Nanaya eut-il achevé sa phrase qu'un portail doré apparut soudain au plafond de la salle de conférence.
+
+Un vieillard en robes blanches en sortit lentement, des cornes sur la tête et neuf Orbes Chercheurs de Vérité noirs flottant derrière lui.
+
+« Le Sage des Six Voies ?! » s'exclamèrent tous les présents, ne s'attendant pas à voir le légendaire fondateur du ninjutsu apparaître en ce moment.
+
+Le Sage des Six Voies baissa la tête et balaya du regard les personnes dans la salle.
+
+Finalement, son regard se posa sur Hayashi Nanaya, et une lueur de choc apparut dans ses yeux.
+
+« Es-tu celui qui perturbe l'équilibre du Monde Ninja ? »
+
+La voix du Sage des Six Voies était comme le roulement du tonnerre, pleine de majesté. « Le pouvoir en toi… n'appartient pas à ce monde ! »
+
+Hayashi Nanaya se leva et rencontra calmement le regard du Sage des Six Voies : « Ōtsutsuki Hagoromo, je ne m'attendais pas à ce que même toi perçoives les changements. »
+
+« Il semble que mon influence sur ce monde soit plus grande que je ne l'imaginais. »
+
+« Tu connais mon nom ? » Le Sage des Six Voies fut quelque peu surpris, puis comprit. « C'est vrai, avec un tel pouvoir, tu devrais être capable de voir à travers bien des choses. »
+
+« Mais cela n'a pas d'importance. Ce qui importe, c'est que tu détruis l'équilibre que j'ai établi pour le Monde Ninja. »
+
+« L'équilibre ? » Hayashi Nanaya ricana.
+
+« Ton soi-disant équilibre ne consiste-t-il qu'à maintenir le Monde Ninja dans un état de guerre et de haine éternelles ? »
+
+« Je veux simplement établir une véritable paix et permettre aux gens d'échapper aux massacres et aux souffrances sans fin. »
+
+« Tu es trop naïf, » le Sage des Six Voies secoua la tête. « L'équilibre du Monde Ninja repose sur la confrontation des puissances. »
+
+« Si un camp obtient un pouvoir absolu, il brisera cet équilibre et finira par provoquer une catastrophe encore plus grande. »
+
+« Tout comme lorsque Ōtsutsuki Kaguya a obtenu le pouvoir de l'Arbre Divin il y a mille ans. »
+
+« C'est pourquoi je dois t'empêcher de continuer à interférer avec le développement du Monde Ninja. »
+
+Après avoir parlé, les neuf Orbes Chercheurs de Vérité derrière le Sage des Six Voies commencèrent à tourner, libérant une Aura puissante.
+
+L'air dans toute la salle de conférence devint lourd.
+
+Hayashi Nanaya secoua la tête, une trace de déception apparaissant sur son visage : « Sage des Six Voies, j'avais espéré que tu comprendrais mon approche. »
+
+« Mais maintenant, il semble que tu sois comme tous les autres dans ce Monde Ninja, enchaîné par tes propres préjugés. »
+
+« Le Monde Ninja a besoin de changement, il a besoin d'une véritable paix, pas de ton soi-disant 'équilibre'. »
+
+« Je ne permettrai à personne d'arrêter ce changement, pas même à toi, le créateur du système de ninjutsu ! »
+
+La voix de Hayashi Nanaya devint de plus en plus forte, finissant presque en un rugissement.
+
+Une explosion de pouvoir spirituel doré jaillit de son corps, formant une Aura massive qui enveloppa tous ceux qui se trouvaient dans la salle.
+
+« Arrête ! » cria sévèrement le Sage des Six Voies. « Tu défies l'autorité d'un dieu ! »
+
+Hayashi Nanaya ricana : « Un dieu ? Même si c'était un vrai dieu, s'il barre le chemin de la paix, je le tuerai ! »
+
+« Puisque tu es déterminé à m'arrêter, laisse-moi voir à quel point est fort le Sage des Six Voies qui a créé le système de ninjutsu ! »
+
+Après avoir parlé, la silhouette de Hayashi Nanaya disparut soudain de l'endroit où il se tenait.
+
+À la seconde suivante, il était déjà apparu devant le Sage des Six Voies.
+
+Tout en s'approchant, il forma des sceaux de sa main droite, et un Qi d'Épée doré se condensa hors du vide.
+
+« Tranchant de Qi d'Épée ! »
+
+Le Qi d'Épée frappa le Sage des Six Voies comme la foudre, se déplaçant si vite que personne présent ne put réagir à temps.
+
+« Orbe Chercheur de Vérité : Bouclier ! »
+
+Le Sage des Six Voies invoqua rapidement plusieurs Orbes Chercheurs de Vérité, formant une barrière noire pour bloquer devant lui.
+
+« Boum ! » Le Qi d'Épée entra en collision avec les Orbes Chercheurs de Vérité, émettant un rugissement assourdissant.
+
+L'onde de choc puissante détruisit instantanément toute la salle de conférence.
+
+Les quatre Kage et les ninjas de Konoha furent forcés de battre en retraite, évitant le centre de la bataille.
+
+« Est-ce… le pouvoir du Sage des Six Voies ? » A regarda la bataille dans le ciel avec horreur.
+
+« Comme prévu du légendaire fondateur du ninjutsu, il a effectivement pu bloquer l'attaque de Hayashi Nanaya ! »
+
+« Mais Hayashi Nanaya semble avoir encore des forces en réserve, » analysa Ōnoki. « Cette frappe n'était qu'une sonde. »
+
+« La véritable bataille ne fait que commencer ! »
+
+Dans le ciel, le Sage des Six Voies et Hayashi Nanaya se faisaient face, leurs Auras complètement déchaînées.
+
+Les Orbes Chercheurs de Vérité derrière le Sage des Six Voies tournaient continuellement, libérant un puissant Chakra des Six Voies.
+
+Pendant ce temps, Hayashi Nanaya était enveloppé d'une lueur dorée de pouvoir spirituel, son Aura en rien inférieure à celle de son adversaire.
+
+« Comme prévu du Sage des Six Voies qui a créé le système de ninjutsu, » commenta Hayashi Nanaya. « Tu es en effet très fort. »
+
+« Mais malheureusement, tu as rencontré un Cultivateur. »
+
+« Un Cultivateur ? » Le Sage des Six Voies fronça les sourcils. « D'où viens-tu exactement ? »
+
+« Cela n'a pas d'importance, » Hayashi Nanaya secoua la tête. « Ce qui importe, c'est que je ne permettrai à personne d'arrêter l'arrivée de la paix dans le Monde Ninja. »
+
+« Y compris toi, Sage des Six Voies ! »
+
+Après avoir parlé, Hayashi Nanaya forma des sceaux de ses deux mains, et le pouvoir spirituel autour de lui se mit à bouillonner.
+
+« Technique d'Épée de Shushan : Dix Mille Épées Retournent à l'Origine ! »
+
+D'innombrables flux de Qi d'Épée doré jaillirent du corps de Hayashi Nanaya, attaquant le Sage des Six Voies comme une pluie de météores.
+
+« Six Voies : Dévastation Planétaire ! »
+
+Le Sage des Six Voies utilisa également toute sa force, formant des sceaux de ses deux mains, et une sphère noire massive se forma dans les airs.
+
+La sphère émit une puissante force gravitationnelle, tentant d'absorber le Qi d'Épée de Hayashi Nanaya.
+
+Mais à la stupéfaction du Sage des Six Voies, ces Qi d'Épée ignorèrent l'existence de la force gravitationnelle et continuèrent à foncer droit sur lui.
+
+« C'est impossible ! » s'exclama le Sage des Six Voies. « Aucune substance ne peut ignorer la gravité de la Dévastation Planétaire ! »
+
+« Je te l'ai déjà dit, » répondit calmement Hayashi Nanaya. « Les Méthodes de Cultivation Xianxia ne suivent pas les règles du Monde Ninja. »
+
+« Le pouvoir spirituel est plus proche de l'Origine que le Chakra et peut ignorer de nombreuses Lois de la physique. »
+
+Le Sage des Six Voies dut abandonner la Dévastation Planétaire et invoqua plutôt tous ses Orbes Chercheurs de Vérité pour former un bouclier protecteur.
+
+« Orbe Chercheur de Vérité : Défense Omnidirectionnelle ! »
+
+Les neuf Orbes Chercheurs de Vérité se déployèrent, formant une défense sphérique parfaite, protégeant fermement le Sage des Six Voies au centre.
+
+Les Dix Mille Épées Retournent à l'Origine de Hayashi Nanaya s'écrasèrent contre la défense des Orbes Chercheurs de Vérité, émettant une explosion assourdissante.
+
+La défense des Orbes Chercheurs de Vérité vibra violemment, mais ne s'effondra pas immédiatement.
+
+« Comme prévu des Orbes Chercheurs de Vérité, » commenta Hayashi Nanaya. « Ayant la capacité de détruire toutes les formes, ils sont en effet puissants. »
+
+« Mais ce niveau de défense est loin d'être suffisant pour moi ! »
+
+Hayashi Nanaya poussa sa main droite vers l'avant, et un torrent encore plus dense de Qi d'Épée se déversa.
+
+« Technique d'Épée de Shushan : Qi d'Épée Tel un Dragon ! »
+
+Le Qi d'Épée se condensa en un dragon géant doré, se précipitant vers la défense du Sage des Six Voies, crocs et griffes déployés.
+
+« Boum ! » L'impact massif résonna dans tout le village de Konoha, et la défense des Orbes Chercheurs de Vérité finit par développer des fissures.
+
+L'expression du Sage des Six Voies devint grave ; il ne s'attendait pas à ce que l'attaque de Hayashi Nanaya fût aussi puissante.
+
+« Cela a déjà dépassé le cadre du ninjutsu… »
+
+## Chapitre 118 — Le soi-disant système de ninjutsu n'est rien d'autre qu'un tour
+
+Le Sage des Six Voies murmura pour lui-même : « C'est encore plus puissant que la force que Kaguya et moi possédions… »
+
+« As-tu compris maintenant ? » La voix de Hayashi Nanaya parvint jusqu'à lui.
+
+« Le système de ninjutsu que tu as créé n'est rien d'autre qu'un jeu d'enfant devant un véritable Cultivateur. »
+
+« Mais je n'ai pas l'intention de détruire le Monde Ninja ; au contraire, je veux le guider vers une véritable paix. »
+
+« Pourquoi dois-tu m'arrêter ? »
+
+Le Sage des Six Voies resta silencieux un moment : « Parce que tu as brisé l'équilibre… »
+
+« Un pouvoir excessif apporte le désastre ; c'est la règle du Monde Ninja. »
+
+« Tout comme ma mère, Kaguya, a fini par sombrer dans la folie après avoir obtenu le pouvoir de l'Arbre Divin. »
+
+Hayashi Nanaya ricana : « Tu as donc l'intention de maintenir le Monde Ninja dans un état de guerre perpétuelle, où chacun se surveille et s'entretue ? »
+
+« C'est ça ton soi-disant équilibre ? »
+
+« La véritable paix devrait reposer sur le respect mutuel et la compréhension entre les nations, faisant face ensemble aux menaces extérieures. »
+
+« Et non cet 'équilibre' tien, qui est plein de conspirations ! »
+
+Le Sage des Six Voies fut sans voix, car ce que Hayashi Nanaya disait était la vérité.
+
+L'équilibre du Monde Ninja qu'il avait conçu reposait effectivement sur les nations se maintenant mutuellement en échec.
+
+Bien que cet équilibre ait empêché une seule puissance de dominer, il avait également conduit à une guerre et une haine sans fin.
+
+« Peut-être… as-tu raison… »
+
+Le Sage des Six Voies soupira enfin. « Mais je crains toujours que ton pouvoir n'apporte le désastre. »
+
+« Alors laisse-moi te le prouver, »
+
+La voix de Hayashi Nanaya était ferme. « Laisse-moi prouver que je peux utiliser ce pouvoir pour apporter une véritable paix, pas la destruction. »
+
+« Les Cinq Grands Villages Ninja ont atteint un consensus et établi l'Alliance de Paix. »
+
+« À l'avenir, nous ferons face ensemble à la menace du Clan Ōtsutsuki et protégerons la sécurité de ce monde. »
+
+« Le Clan Ōtsutsuki ? » demanda le Sage des Six Voies avec surprise. « Tu les connais ? »
+
+« Bien sûr, » Hayashi Nanaya hocha la tête. « Ils sont la véritable menace pour le Monde Ninja. »
+
+« Ta mère, Kaguya, n'était qu'une des membres qu'ils ont envoyées pour récolter le Fruit de Chakra. »
+
+« À l'avenir, davantage de membres du Clan Ōtsutsuki descendront sur Terre. »
+
+« Quand ce moment viendra, nous devrons nous unir et les affronter ensemble. »
+
+« C'est là le véritable but de mon établissement de l'Alliance de Paix ! »
+
+Après avoir entendu cela, le Sage des Six Voies tomba dans une profonde réflexion.
+
+Si ce que Hayashi Nanaya disait était vrai.
+
+Alors le Monde Ninja avait vraiment besoin de s'unir pour faire face à la menace du Clan Ōtsutsuki.
+
+Mais il ne pouvait toujours pas faire entièrement confiance à ce jeune homme qui avait soudainement acquis un pouvoir aussi immense.
+
+« Si tu fais vraiment cela pour la paix, » dit enfin le Sage des Six Voies, « alors dépose tes armes et laisse-moi voir par moi-même. »
+
+Comme il parlait, le Sage des Six Voies tendit sa main droite, et une lumière dorée se dirigea vers Hayashi Nanaya.
+
+« Six Voies : Télépathie ! »
+
+C'était une capacité spéciale du Sage des Six Voies, capable de lire les souvenirs et les pensées de la cible.
+
+Mais à sa stupéfaction, au moment où la lumière dorée toucha Hayashi Nanaya, elle fut bloquée par une barrière invisible.
+
+« Mes excuses, Sage des Six Voies, » Hayashi Nanaya secoua la tête. « Je ne permets à personne de fouiller dans mon cœur. »
+
+« Pas même à toi ! »
+
+L'expression du Sage des Six Voies devint encore plus sérieuse : « Alors je n'ai d'autre choix que de t'arrêter par la force ! »
+
+Ayant dit cela, le Sage des Six Voies forma immédiatement des sceaux devant son adversaire.
+
+Alors qu'il formait les sceaux, les neuf Orbes Chercheurs de Vérité derrière lui s'envolèrent, se transformant en neuf épées longues noires qui se précipitèrent vers Hayashi Nanaya.
+
+« Orbe Chercheur de Vérité : Neuf Épées du Massacre des Dieux ! »
+
+Les neuf épées longues noires étaient extrêmement rapides, chacune exhalant une aura terrifiante, comme si elle était capable de trancher toute existence.
+
+Hayashi Nanaya, cependant, resta calme et leva légèrement la main.
+
+« Force de Suppression des Huit Désolations ! »
+
+Une force invisible jaillit de la paume de Hayashi Nanaya, se répandant dans toutes les directions.
+
+Au moment où les neuf épées longues noires entrèrent en contact avec cette force.
+
+Leur vitesse ralentit immédiatement, et elles finirent par s'immobiliser complètement en plein air, comme figées.
+
+« Impossible ! » Le Sage des Six Voies regarda avec choc ses Orbes Chercheurs de Vérité être facilement contrôlés.
+
+« Les Orbes Chercheurs de Vérité représentent l'Origine du pouvoir des Six Voies ; comment pourraient-ils être arrêtés ? »
+
+« C'est le pouvoir d'une Méthode de Cultivation Xianxia, »
+
+Expliqua Hayashi Nanaya. « La Force de Suppression des Huit Désolations peut supprimer toutes les formes d'énergie, y compris ton pouvoir des Six Voies. »
+
+« Face à un pouvoir absolu, toute technique paraît pâle et faible. »
+
+Alors que Hayashi Nanaya parlait, il marcha lentement vers le Sage des Six Voies.
+
+À chaque pas qu'il faisait, la pression dans l'air augmentait.
+
+Le Sage des Six Voies sentit son corps spirituel être supprimé par une force invisible.
+
+« Sage des Six Voies, tu as créé le système de ninjutsu et apporté à l'humanité la capacité de résister aux ennemis extérieurs ; cela est digne d'admiration. »
+
+« Mais ton époque est passée ; maintenant, c'est le temps pour une nouvelle génération de guider le Monde Ninja vers une véritable paix. »
+
+Entendant les paroles de Hayashi Nanaya, le Sage des Six Voies fixa son regard sur le Hayashi Nanaya devant lui.
+
+En même temps, une lueur d'émotions complexes traversa ses yeux.
+
+Personne ne savait combien de son propre pouvoir il avait fallu pour créer le Monde Ninja.
+
+Pourtant, combien de temps ce soi-disant Monde Ninja avait-il réellement duré ?
+
+Il venait de percevoir une anomalie dans le Monde Ninja depuis la Terre Pure, et maintenant cette personne était venue lui dire que le Monde Ninja avait déjà été unifié par ce soi-disant Hayashi Nanaya.
+
+Comment cela pouvait-il être ?
+
+Et pourtant, cette personne se tenait ici, parlant avec droiture de choses qu'il n'avait pas besoin de connaître.
+
+« Une nouvelle génération ? » Le Sage des Six Voies ricana.
+
+« Penses-tu que posséder un grand pouvoir te permet de guider le Monde Ninja vers la paix ? »
+
+« L'histoire a déjà prouvé qu'un pouvoir excessif n'apporte que la destruction ! »
+
+« C'est précisément parce que ma mère, Kaguya, a obtenu le pouvoir de l'Arbre Divin que la première catastrophe du Monde Ninja s'est produite ! »
+
+En mentionnant sa mère, la voix du Sage des Six Voies devint de plus en plus agitée.
+
+La lumière de Chakra derrière lui devint encore plus éblouissante.
+
+« Je ne permettrai pas que l'histoire se répète ! Pour la sécurité du Monde Ninja, je dois t'arrêter aujourd'hui ! »
+
+Ayant dit cela, le Sage des Six Voies se prépara à s'occuper de Hayashi Nanaya.
+
+Alors qu'il bougeait, une fluctuation d'énergie terrifiante éclata de l'intérieur de son corps.
+
+Percevant la peur des personnes derrière Hayashi Nanaya.
+
+Une lueur de joie traversa les yeux du Sage des Six Voies.
+
+Donc c'était ça.
+
+La force de ces gens n'était-elle rien de plus que cela ?
+
+Il venait tout juste de commencer à élever son pouvoir.
+
+« Six Voies : Retour de la Création à l'Origine ! »
+
+C'était l'une de ses techniques secrètes les plus puissantes, capable de restructurer les règles fondamentales du monde et de tout restaurer à son état originel.
+
+C'était précisément avec ce mouvement qu'il avait réussi à sceller sa mère, Ōtsutsuki Kaguya.
+
+Alors qu'il élevait son pouvoir à la limite.
+
+Son corps commença à briller, et les neuf Orbes Chercheurs de Vérité tournèrent autour de lui à grande vitesse, formant progressivement un immense champ d'énergie.
+
+Avec la formation de ce champ d'énergie, l'espace dans le village de Konoha commença à se distordre, comme s'il était sur le point d'être remodelé par ce pouvoir.
+
+« Quel dommage. »
+
+Percevant les actions du Sage des Six Voies, Hayashi Nanaya soupira, une lueur de déception traversant ses yeux.
+
+« J'avais supposé qu'en tant que créateur du Monde Ninja, tu aurais un esprit plus ouvert. »
+
+« Je ne m'attendais pas à ce que tu sois comme les autres vieux entêtés, ne sachant que te cramponner aux règles du passé. »
+
+## Chapitre 119 — Le Sage des Six Voies est-il mort ?
+
+Disant cela, son ton devint progressivement froid, et un sens terrifiant de l'oppression rayonna de lui.
+
+Il regarda la position du Sage des Six Voies avec une expression froide.
+
+« Puisque tu insistes pour être mon ennemi, alors ne me blâme pas d'être impoli ! »
+
+Ayant dit cela, Hayashi Nanaya forma des sceaux avec ses mains, et le pouvoir spirituel dans son corps explosa instantanément.
+
+« Colère de la Transformation de l'Âme ! »
+
+Une lumière dorée jaillit immédiatement du corps de Hayashi Nanaya, fusant droit dans les nuages.
+
+Partout où la lumière passait, le pouvoir de Création et de Retour à l'Origine du Sage des Six Voies était dispersé de force.
+
+« Impossible ! »
+
+Regardant sa technique secrète être facilement brisée, le regard du Sage des Six Voies vers Hayashi Nanaya était rempli de choc.
+
+Comment cela pouvait-il être ?
+
+Comment l'une de ses plus puissantes techniques secrètes pouvait-elle être aussi facilement brisée par Hayashi Nanaya ?
+
+Quelle attaque venait-il d'utiliser ?
+
+Pourquoi ne l'ai-je jamais vue auparavant ?
+
+Le Sage des Six Voies regarda avec terreur l'endroit où se trouvait Hayashi Nanaya.
+
+Le calme et l'indifférence initiaux avaient complètement disparu.
+
+Tout ce qui restait était le choc et l'incrédulité.
+
+« Il n'y a rien d'impossible. »
+
+Ne laissant pas au Sage des Six Voies le temps de réagir, la silhouette de Hayashi Nanaya disparut soudain, et à la seconde suivante, il apparut devant le Sage des Six Voies.
+
+« Technique d'Épée de Shushan : Style Massacreur d'Immortels ! »
+
+Un Qi d'Épée doré éblouissant jaillit de la paume de Hayashi Nanaya, perçant directement à travers la défense du Sage des Six Voies et se plantant dans sa poitrine.
+
+« Ah ! »
+
+Ressentant la douleur dans son corps, le Sage des Six Voies laissa échapper un gémissement douloureux, et l'immense force d'impact l'envoya voler à des centaines de mètres.
+
+Les neuf Orbes Chercheurs de Vérité derrière son dos se dispersèrent également, perdant leur éclat.
+
+Après un moment, il parvint à stabiliser sa silhouette, et une énergie dorée coula continuellement de l'endroit où sa poitrine avait été percée par le Qi d'Épée.
+
+Ce n'était pas du sang, mais son Origine d'Âme.
+
+« Tu… tu peux réellement endommager mon Âme ! »
+
+Le Sage des Six Voies regarda sa blessure avec incrédulité, sa voix remplie de choc.
+
+En tant qu'existence mi-dieu mi-humaine, son Âme aurait dû être indestructible.
+
+Il ne s'attendait pas à ce que l'attaque de ce jeune homme devant lui puisse endommager directement l'essence de son Âme.
+
+« Je te l'ai déjà dit, la Méthode de Cultivation Xianxia ne suit pas les règles du Monde Ninja. »
+
+Répondit calmement Hayashi Nanaya. « La Technique d'Épée de Shushan : Style Massacreur d'Immortels est spécifiquement conçue pour traiter avec les Âmes Divines ; elle peut même tuer de vrais dieux. »
+
+« Sans parler de toi, qui n'es qu'un demi-dieu possédant le pouvoir des Six Voies. »
+
+Le visage du Sage des Six Voies devint encore plus pâle ; il sentit son pouvoir se drainer rapidement.
+
+Si la bataille continuait, il pourrait être complètement anéanti, sans même une chance de retourner à la Terre Pure.
+
+« Il semble… que je t'aie sous-estimé… »
+
+Dit le Sage des Six Voies, haletant. « Mais tu dois te rappeler, un pouvoir trop fort finira par inviter le désastre. »
+
+« Quand tu ne pourras plus contrôler ce pouvoir, le Monde Ninja tout entier tombera dans la crise ! »
+
+« Contrôler le pouvoir n'a jamais été le problème. »
+
+Hayashi Nanaya ricana. « Le vrai problème, c'est comment utiliser ce pouvoir. »
+
+« Tu as choisi de maintenir un équilibre superficiel, gardant le Monde Ninja pour toujours dans un état de guerre. »
+
+« Et moi, je choisis de briser ce faux équilibre et d'établir une véritable paix. »
+
+« C'est là la différence entre nous ! »
+
+Le Sage des Six Voies tomba silencieux ; il ne lui restait plus beaucoup de temps.
+
+Les dommages à son Âme se propageaient rapidement ; s'il ne retournait pas bientôt à la Terre Pure, il pourrait complètement périr.
+
+« Je… dois retourner… »
+
+Dit le Sage des Six Voies avec difficulté, son corps commençant à devenir transparent. « Mais je reviendrai… et alors nous réglerons cela. »
+
+Hayashi Nanaya renifla froidement et leva à nouveau la main.
+
+« Technique d'Épée de Shushan : Épée Poursuiveuse d'Âme ! »
+
+Un autre trait de Qi d'Épée jaillit, perçant directement à travers le corps du Sage des Six Voies alors qu'il était sur le point de se dissiper.
+
+« Ah ! »
+
+Le Sage des Six Voies laissa échapper un hurlement douloureux, et son corps se transforma complètement en lumière dorée et se dissipa.
+
+Mais avant de disparaître, sa voix résonna encore dans l'air :
+
+« Hayashi Nanaya… je reviendrai… La Terre Pure… n'est pas un endroit où tu peux… mettre les pieds… »
+
+Avec le départ du Sage des Six Voies, les phénomènes étranges au-dessus du village de Konoha disparurent également.
+
+Le ciel redevint clair, et la lumière du soleil baigna la terre, comme si tout ce qui venait de se produire n'était qu'une illusion.
+
+Mais tous les présents savaient qu'ils venaient d'assister de leurs propres yeux à une bataille bouleversante.
+
+Hayashi Nanaya, le Cinquième Hokage de Konoha, avait effectivement vaincu le légendaire Sage des Six Voies !
+
+C'était simplement l'un des événements les plus incroyables de l'histoire du Monde Ninja !
+
+« Seigneur Hayashi Nanaya… a effectivement vaincu le Sage des Six Voies ? »
+
+Naruto regarda fixement le ciel, la bouche grande ouverte d'incrédulité.
+
+Sasuke était également sous le choc ; il avait initialement pensé que le Sage des Six Voies était une existence invincible.
+
+Il ne s'attendait pas à ce que devant Hayashi Nanaya, même le Sage des Six Voies fût aussi vulnérable.
+
+Les quatre Kage étaient encore plus stupéfaits ; ils n'avaient jamais pensé assister à l'apparition du Sage des Six Voies, encore moins voir sa défaite.
+
+« Est-ce… la véritable force de Hayashi Nanaya ? »
+
+Le Quatrième Raikage A murmura pour lui-même, sa voix remplie de crainte.
+
+Le Troisième Tsuchikage Ōnoki resta silencieux, son choc intérieur au-delà des mots.
+
+S'ils avaient auparavant eu des réserves envers Hayashi Nanaya.
+
+Maintenant, cette réserve s'était transformée en une profonde crainte.
+
+Quelqu'un capable de vaincre le Sage des Six Voies avait déjà surpassé tous les systèmes de pouvoir dans leur cognition.
+
+Hayashi Nanaya descendit lentement, retournant aux ruines de la salle de conférence.
+
+« Mes excuses à tous. »
+
+Hayashi Nanaya sourit légèrement, comme si l'intense bataille qui venait de se dérouler n'était qu'un petit interlude. « Je vous ai laissé voir une scène désagréable. »
+
+« Mais maintenant tout est terminé, et nous pouvons continuer notre réunion précédente. »
+
+En entendant cela, tout le monde recula involontairement d'un demi-pas.
+
+Maintenant, ils comprenaient enfin pourquoi Hayashi Nanaya pouvait proposer avec tant de confiance le plan de l'Alliance de Paix.
+
+Parce qu'avec sa force, il n'avait besoin du consentement ou du soutien de personne.
+
+Il pouvait complètement gouverner le Monde Ninja tout entier par sa seule force !
+
+Mais il ne fit pas cela ; au lieu de cela, il choisit une méthode de dialogue pacifique, respectant les opinions et les intérêts de chaque village ninja.
+
+Cette ampleur d'esprit et cette prestance étaient encore plus admirables que la force terrifiante qu'il avait affichée.
+
+« Seigneur Hayashi Nanaya. »
+
+Gaara parla le premier, brisant le silence. « Sunagakure soutiendra pleinement la construction de l'Alliance de Paix. »
+
+« Je crois que sous ta direction, le Monde Ninja entrera dans une véritable ère de paix ! »
+
+« Le Village Caché de la Brume le soutiendra également pleinement. »
+
+Mei Terumī suivit de près pour exprimer sa position. « La philosophie et la force de Seigneur Hayashi Nanaya me font croire fermement en lui. »
+
+A et Ōnoki se regardèrent et finirent par hocher la tête également.
+
+« Le Village Caché des Nuages rejoint l'Alliance de Paix. »
+
+« Iwagakure aussi. »
+
+Tout comme ça, après l'intermède inattendu avec le Sage des Six Voies, le Sommet des Cinq Kage se conclut avec succès.
+
+Les Cinq Grands Villages Ninja décidèrent officiellement d'établir l'Alliance de Paix pour maintenir conjointement la paix et la stabilité du Monde Ninja.
+
+…
+
+Dans la Terre Pure, dans un espace tranquille.
+
+Le Sage des Six Voies tomba au sol dans un état piteux, de l'énergie dorée coulant encore continuellement de la blessure sur sa poitrine.
+
+« Maudit sois-tu, Hayashi Nanaya ! »
+
+Le Sage des Six Voies maudit douloureusement ; il ne s'attendait pas à être vaincu aussi complètement.
+
+## Chapitre 120 — Refoulé vers la Terre Pure
+
+Le pouvoir du jeune homme avait de loin dépassé ses attentes.
+
+Il était encore plus puissant qu'Ōtsutsuki Kaguya à son apogée !
+
+« Pouvoir spirituel, Méthode de Cultivation Xianxia… qu'est-ce que c'est ? »
+
+Le Sage des Six Voies lutta pour soutenir son corps, endurant la douleur atroce pour commencer à réparer son Âme.
+
+Mais le Qi d'Épée de Hayashi Nanaya semblait contenir une sorte de pouvoir spécial qui rendait les blessures difficiles à guérir.
+
+« Cette douleur… je crains qu'elle ne dure longtemps… »
+
+Le Sage des Six Voies soupira, une lueur de réticence traversant ses yeux.
+
+Il avait initialement pensé qu'avec son pouvoir des Six Voies, il serait suffisant pour gérer toute menace.
+
+Mais l'apparition de Hayashi Nanaya avait complètement brisé sa confiance.
+
+« Hayashi Nanaya a mentionné la Terre Pure… pourrait-il avoir la capacité de venir ici ? »
+
+Plus le Sage des Six Voies y pensait, plus il devenait mal à l'aise ; si Hayashi Nanaya pouvait vraiment mettre les pieds dans la Terre Pure.
+
+Alors même son sanctuaire final cesserait d'exister.
+
+« Non, je dois me préparer… la prochaine fois que nous nous rencontrerons, je ne peux absolument pas être aussi pathétique qu'aujourd'hui ! »
+
+Une lueur de détermination traversa les yeux du Sage des Six Voies alors qu'il commençait à préparer un plan pour contrer Hayashi Nanaya.
+
+Bien qu'il sût que cela pourrait être une bataille perdue d'avance.
+
+Mais pour l'équilibre du Monde Ninja, il n'avait pas d'autre choix.
+
+« Hayashi Nanaya… je te ferai comprendre qu'un pouvoir excessif finira par apporter le désastre… »
+
+La voix du Sage des Six Voies résonna dans la Terre Pure vide, remplie de réticence et de colère.
+
+Au village de Konoha, après la conclusion du Sommet des Cinq Kage.
+
+Hayashi Nanaya se tenait au sommet du Bâtiment du Hokage, contemplant le paysage au loin.
+
+L'affrontement avec le Sage des Six Voies venait de lui donner une compréhension plus profonde de ce monde.
+
+« La Terre Pure, est-ce… Il semble que la structure de ce monde soit plus complexe que je ne l'imaginais. »
+
+Hayashi Nanaya murmura pour lui-même, une lueur de contemplation traversant ses yeux.
+
+Selon la réaction du Sage des Six Voies, la Terre Pure devrait être l'au-delà de ce monde, similaire au Pays des Morts ou aux enfers.
+
+Et le Sage des Six Voies, en tant qu'existence mi-dieu mi-humaine, pouvait voyager librement entre la Terre Pure et le monde des mortels.
+
+« S'il y a une opportunité, je dois vraiment aller voir la Terre Pure. »
+
+Les lèvres de Hayashi Nanaya se courbèrent légèrement. « Peut-être qu'il y a encore plus de secrets qui m'attendent là-bas. »
+
+« Seigneur Hayashi Nanaya. »
+
+La voix de Kakashi vint de derrière, interrompant les pensées de Hayashi Nanaya.
+
+« Les quatre Kage sont déjà prêts et prêts à retourner dans leurs Villages Ninja respectifs. »
+
+« Ils veulent te voir une dernière fois avant de partir. »
+
+Hayashi Nanaya hocha la tête : « Emmène-moi les voir. »
+
+Bientôt, Hayashi Nanaya arriva à l'entrée du village de Konoha, où les quatre Kage attendaient déjà.
+
+Voyant Hayashi Nanaya apparaître, leurs expressions devinrent clairement beaucoup plus respectueuses.
+
+« Seigneur Hayashi Nanaya. »
+
+Gaara parla le premier. « Avant de partir, j'aimerais confirmer une dernière fois les questions concernant l'Alliance de Paix. »
+
+« Le Quartier Général de l'Alliance sera situé à la frontière des cinq nations et géré conjointement par les Cinq Grands Villages Ninja, n'est-ce pas ? »
+
+Hayashi Nanaya hocha la tête : « C'est exact. La construction du quartier général commencera immédiatement. »
+
+« J'espère que chaque village pourra envoyer des ninjas d'élite pour y participer. »
+
+« Ensemble, nous construirons une Alliance de Paix qui appartient vraiment à tous. »
+
+« En même temps, je vais également organiser que Nagato, Konan, et d'autres anciens membres de l'Organisation Akatsuki aident à la construction et à la gestion du quartier général. »
+
+« Ils étaient autrefois des idéalistes poursuivant la paix, et maintenant ils peuvent enfin contribuer à la véritable paix. »
+
+Après avoir entendu cela, les quatre Kage hochèrent la tête en signe d'approbation.
+
+« Seigneur Hayashi Nanaya. »
+
+Le Quatrième Raikage A hésita un moment avant de demander. « Concernant cette personne de tout à l'heure… le Sage des Six Voies… reviendra-t-il ? »
+
+L'expression de Hayashi Nanaya devint sérieuse : « Il reviendra certainement. »
+
+« Bien que j'aie lourdement endommagé son Âme, étant donné la capacité de récupération du Sage des Six Voies, il n'abandonnera pas aussi facilement. »
+
+« Cependant, vous n'avez pas besoin de vous inquiéter. Quand le moment viendra, je résoudrai personnellement ce problème. »
+
+« Notre tâche principale reste de construire l'Alliance de Paix et de nous préparer à l'apparition potentielle du Clan Ōtsutsuki à l'avenir. »
+
+En entendant cela, les quatre Kage ne purent s'empêcher de sentir leurs cœurs se serrer.
+
+Si même le Sage des Six Voies n'était pas de taille face à Hayashi Nanaya, alors à quel point était puissant ce soi-disant Clan Ōtsutsuki ?
+
+Au point que le Monde Ninja tout entier devait s'unir pour les affronter ?
+
+« Seigneur Hayashi Nanaya, pourriez-vous fournir plus de détails concernant les renseignements sur le Clan Ōtsutsuki ? »
+
+Ōnoki demanda prudemment. « C'est important pour nous de formuler nos plans de défense. »
+
+Hayashi Nanaya réfléchit un moment : « Le Clan Ōtsutsuki est une race extraterrestre ancienne et puissante. »
+
+« Ils augmentent leur propre pouvoir en plantant des Arbres Divins et en récoltant des fruits de Chakra. »
+
+« La mère du Sage des Six Voies, Kaguya, était l'une d'entre eux. »
+
+« Après son arrivée sur Terre, elle a planté l'Arbre Divin et est finalement devenue la Jinchûriki des Dix-Queues. »
+
+« Mais Kaguya n'était qu'une membre du Clan Ōtsutsuki. À l'avenir, davantage de membres du clan viendront sur Terre chercher des fruits de Chakra. »
+
+« Chacun d'eux possède un pouvoir comparable au Sage des Six Voies. En combattant seul, aucun Village Ninja ne serait capable de faire face. »
+
+Après avoir entendu cela, les complexions des quatre Kage devinrent exceptionnellement graves.
+
+Ils comprirent enfin pourquoi Hayashi Nanaya était si persistant à établir l'Alliance de Paix.
+
+Face à un ennemi aussi puissant, le Monde Ninja doit s'unir ; sinon, il périra sûrement.
+
+« Je comprends. »
+
+Mei Terumī hocha la tête. « Le Village Caché de la Brume coopérera pleinement avec le plan de défense de l'Alliance. »
+
+« Sunagakure aussi. »
+
+« Kumogakure enverra ses ninjas les plus d'élite pour aider l'Alliance. »
+
+« Iwagakure ne restera pas non plus les bras croisés. »
+
+Après que les quatre Kage eurent exprimé leurs positions, ils se regardèrent puis s'inclinèrent devant Hayashi Nanaya.
+
+« Alors, nous prendrons congé, Seigneur Hayashi Nanaya. »
+
+« Nous attendons avec impatience de vous rencontrer à nouveau au Quartier Général de l'Alliance de Paix ! »
+
+Hayashi Nanaya hocha légèrement la tête : « J'attendrai avec impatience l'arrivée de ce jour. »
+
+« Que l'aube de la paix brille sur le Monde Ninja tout entier ! »
+
+Les quatre Kage, accompagnés de leurs suites respectives, quittèrent Konoha et retournèrent dans leurs Villages Ninja respectifs pour transmettre les résultats de la réunion.
+
+Hayashi Nanaya se retourna et retourna au Bâtiment du Hokage, se préparant pour la prochaine étape de son plan.
+
+L'établissement de l'Alliance de Paix n'était que la première étape ; il restait encore beaucoup de travail à faire.
+
+« Hokage-sama, que devons-nous faire ensuite ? »
+
+Kakashi suivit Hayashi Nanaya et demanda respectueusement.
+
+Hayashi Nanaya ne s'arrêta pas : « Envoyez des gens collecter tous les renseignements concernant le Clan Ōtsutsuki. »
+
+« Contactez Naruto, Sasuke, et Sakura, et demandez-leur de se préparer pour des missions de terrain à long terme. »
+
+« Contactez Nagato et Konan pour discuter des détails de construction du Quartier Général de l'Alliance de Paix. »
+
+« Enfin, préparez une pièce tranquille ; je dois me retirer en cultivation pour une période. »
+
+« Cultivation ? » Kakashi fut quelque peu surpris. « Hokage-sama va-t-il Cultiver une nouvelle Méthode de Cultivation ? »
+
+Hayashi Nanaya secoua la tête : « Je vais tenter d'explorer la Terre Pure. »
+
+« Si le Sage des Six Voies insiste pour être mon ennemi, alors je dois comprendre son repaire. »
+
+« La Terre Pure… c'est le monde des morts, n'est-ce pas ? » L'expression de Kakashi devint quelque peu complexe.
+
+« Oui. » Hayashi Nanaya hocha la tête. « C'est là que résident les esprits, et c'est aussi la base d'opérations actuelle du Sage des Six Voies. »
+
+## Chapitre 121 — Préparation pour entrer dans la Terre Pure
+
+« J'ai besoin de comprendre les règles et la structure de cet endroit pour me préparer à de futures confrontations potentielles. »
+
+Kakashi Hatake resta silencieux un moment, puis finit par hocher la tête : « Je comprends, Hokage-sama. »
+
+« Je vais tout organiser, veuillez vous reposer et vous concentrer sur votre cultivation. »
+
+Hayashi Nanaya tapa sur l'épaule de Kakashi Hatake : « Je te laisse faire, Kakashi. »
+
+« Pour le moment, Konoha est entre tes mains. »
+
+Après avoir dit cela, Hayashi Nanaya se retourna et partit, laissant Kakashi Hatake sur place, regardant sa silhouette s'éloigner avec des yeux pleins d'admiration et d'inquiétude.
+
+…
+
+La Terre Pure, la demeure du Sage des Six Voies.
+
+« Hayashi Nanaya… Hayashi Nanaya… »
+
+Le Sage des Six Voies murmura douloureusement pour lui-même, la blessure sur sa poitrine pulsant encore de douleur.
+
+Ce Qi d'Épée n'avait pas seulement endommagé son corps spirituel, mais avait également laissé une blessure inguérissable dans son Âme.
+
+Chaque fois qu'il pensait au nom de Hayashi Nanaya, la blessure se mettait à souffrir intensément, comme pour lui rappeler cette défaite écrasante.
+
+« Avec sa force, ce n'est qu'une question de temps avant qu'il ne vienne à la Terre Pure… »
+
+Le Sage des Six Voies lutta pour se lever, une lueur de détermination dans ses yeux.
+
+« Je dois être préparé ; je ne peux pas le laisser mettre facilement la main sur la Terre Pure ! »
+
+Comme il parlait, le Sage des Six Voies se leva et marcha dans les profondeurs de la Terre Pure, où son secret final était enterré.
+
+Peut-être que c'était là son seul espoir de résister à Hayashi Nanaya.
+
+Mais juste à ce moment, une fluctuation d'énergie familière mais étrange apparut soudain à la frontière de la Terre Pure.
+
+Le Sage des Six Voies leva abruptement la tête, une trace de terreur traversant ses yeux.
+
+« Cette aura… est-ce lui ? »
+
+« Impossible ! Comment a-t-il pu trouver l'entrée de la Terre Pure si rapidement ? »
+
+La voix du Sage des Six Voies était remplie d'incrédulité, mais il se calma rapidement et commença à se préparer à une confrontation.
+
+« Peu importe, la Terre Pure est mon territoire ; je ne le laisserai pas réussir si facilement ! »
+
+Le Sage des Six Voies forma des sceaux, et les neuf Orbes Chercheurs de Vérité derrière lui commencèrent à tourner à grande vitesse.
+
+Bien que ses graves blessures ne fussent pas encore guéries, il avait encore un certain avantage sur son propre terrain.
+
+À la frontière de la Terre Pure, une lumière dorée s'étendait lentement.
+
+C'était la sonde du sens spirituel de Hayashi Nanaya. Bien qu'il ne fût pas encore arrivé en personne, son sens spirituel avait déjà touché la frontière de la Terre Pure.
+
+« Intéressant, la structure de ce monde est plus complexe que je ne l'imaginais. »
+
+Dans la pièce tranquille à Konoha, Hayashi Nanaya, qui était assis en tailleur, ouvrit légèrement les yeux, un sourire apparaissant au coin de sa bouche.
+
+« Cependant, puisque je peux le percevoir, y aller n'est qu'une question de temps. »
+
+« Sage des Six Voies, nous nous rencontrerons à nouveau très bientôt… »
+
+La voix de Hayashi Nanaya était très douce, mais le Sage des Six Voies dans la Terre Pure sembla l'entendre, et ne put s'empêcher de frissonner.
+
+Une grande bataille s'étendant au-delà des frontières de la vie et de la mort était sur le point de commencer !
+
+…
+
+Dans une pièce secrète tranquille au village de Konoha.
+
+Hayashi Nanaya était assis en tailleur au centre, son corps entouré d'une lueur dorée de pouvoir spirituel.
+
+Il était en cultivation depuis trois jours, et le pouvoir spirituel dans son corps circulait de plus en plus vite, formant un cycle stable.
+
+« Le Dao de la Réincarnation, la vie et la mort sont séparées. »
+
+Hayashi Nanaya chanta doucement, ses mains formant un sceau complexe.
+
+« Émergence de l'Âme, errant dans les Trois Royaumes. »
+
+Alors que l'incantation fut complétée, le corps de Hayashi Nanaya commença à émettre une lumière dorée éblouissante.
+
+Une silhouette illusoire émergea lentement de son corps ; c'était son Âme.
+
+« Va, trouve l'entrée de la Terre Pure. »
+
+Dès qu'elle reçut le commandement, l'Âme de Hayashi Nanaya se précipita immédiatement dans le ciel, perçant à travers le toit de la pièce secrète et se dirigeant droit vers les hauteurs.
+
+Pour une personne ordinaire, Hayashi Nanaya était toujours assis en tailleur dans la pièce secrète, sans aucune anomalie.
+
+Mais en réalité, son Âme avait déjà quitté son corps et voyagé vers une autre dimension.
+
+« La Terre Pure… quel genre d'endroit est-ce exactement ? »
+
+L'Âme de Hayashi Nanaya flotta en haute altitude, percevant les fluctuations d'énergie autour de lui.
+
+Selon la réaction du Sage des Six Voies, la Terre Pure devrait être un autre monde parallèle à l'actuel.
+
+C'était là que résidaient les Âmes des morts, et c'était aussi une partie des Six Voies de la Réincarnation.
+
+« Si je ne me trompe pas, l'entrée de la Terre Pure devrait être à… »
+
+L'Âme de Hayashi Nanaya se tourna soudain vers l'est, où il y avait une fluctuation d'énergie faible mais unique.
+
+« Trouvé ! »
+
+L'Âme de Hayashi Nanaya se précipita immédiatement dans cette direction, se déplaçant aussi vite que l'éclair.
+
+Bientôt, il arriva à une chaîne de montagnes désolée.
+
+Au sommet de la plus haute montagne, il y avait une fissure spatiale presque invisible.
+
+La fissure émettait une faible lumière dorée, qui était complètement déplacée par rapport à l'environnement.
+
+« Est-ce l'entrée de la Terre Pure ? »
+
+L'Âme de Hayashi Nanaya s'approcha de la fissure et tendit prudemment une main illusoire.
+
+« Pop ! »
+
+Une puissante force répulsive repoussa immédiatement la main de son Âme.
+
+« Intéressant, cette entrée semble ne permettre qu'aux vrais morts de passer. »
+
+Hayashi Nanaya ne fut pas surpris ; cela correspondait à sa compréhension de la Terre Pure.
+
+En tant qu'être vivant, tenter d'entrer de force dans le monde des morts rencontrerait naturellement des obstacles.
+
+« Cependant, cette petite obstruction n'est rien pour moi. »
+
+L'Âme de Hayashi Nanaya commença à condenser le pouvoir spirituel, formant un bouclier doré.
+
+« Brise ! »
+
+Avec un cri bas, l'Âme de Hayashi Nanaya chargea directement vers la fissure spatiale.
+
+Le pouvoir défensif autour de la fissure fluctua violemment, tentant d'arrêter cette Âme vivante d'entrer.
+
+Mais face au puissant pouvoir spirituel de Hayashi Nanaya, ces défenses étaient comme du papier, et furent rapidement détruites.
+
+« Bang ! »
+
+Avec un son doux, l'Âme de Hayashi Nanaya passa avec succès à travers la fissure spatiale et entra dans un tout nouveau monde.
+
+…
+
+La Terre Pure, sur une vaste plaine.
+
+D'innombrables Âmes transparentes erraient ici ; certaines riaient, certaines pleuraient, et d'autres avaient l'air perplexes.
+
+C'était la Terre Pure du Monde Ninja, la destination finale pour les Âmes des morts.
+
+Soudain, une lumière dorée éblouissante apparut au-dessus de la plaine.
+
+Une Âme matérialisée descendit du ciel et atterrit fermement sur le sol.
+
+« Est-ce la Terre Pure ? »
+
+L'Âme de Hayashi Nanaya regarda autour d'elle, observant ce monde étrange.
+
+Contrairement à ce qu'il avait imaginé, la Terre Pure n'était pas un monde de ténèbres ou de lumière.
+
+Au contraire, elle était très similaire au monde actuel, avec des montagnes et de l'eau, un ciel et une terre.
+
+La seule différence était que tout ici portait une sorte de texture illusoire, comme si cela pouvait se dissiper à tout moment.
+
+« Hayashi Nanaya ! »
+
+Une voix en colère vint soudain de loin.
+
+La silhouette du Sage des Six Voies apparut devant Hayashi Nanaya, les neuf Orbes Chercheurs de Vérité derrière lui tournant à grande vitesse, émettant une aura dangereuse.
+
+« Tu es vraiment venu ! »
+
+La voix du Sage des Six Voies était remplie d'incrédulité. « En tant qu'être vivant, comment as-tu pu entrer dans la Terre Pure ? »
+
+L'Âme de Hayashi Nanaya sourit légèrement : « Comme je te l'ai dit auparavant, la Méthode de Cultivation Xianxia ne suit pas les règles du Monde Ninja. »
+
+« L'Émergence de l'Âme est un moyen basique de cultivation. Pour un Cultivateur qui a atteint le Royaume de la Transformation de l'Âme, traverser les frontières de la vie et de la mort est sans effort. »
+
+La raison pour laquelle le Sage des Six Voies restait ici était probablement parce que ses blessures physiques n'étaient pas encore complètement guéries.
+
+Mais c'était tout aussi bien ; au moins cela n'affecterait pas ce qu'il était sur le point de faire ensuite.
+
+Si le Sage des Six Voies savait quand se retirer, il pourrait lui sauver la vie.
+
+*Fin des chapitres 117 à 121.*
+
+*À suivre — Les chapitres 122 à 126 seront prêts sur demande.*
