@@ -146,6 +146,26 @@ C'était vrai. Shin avait torpillé les histoires de lapins par une moue si cons
 
 L'enfant, de son côté, tint sa part du marché : il resta un prodige *plausible*. Il calibra tout — ses premiers mots pour ses huit mois (précoce, pas impossible), ses premiers pas pour l'année (athlétique, pas monstrueux), et il enterra profond tout le reste : la mer de Qi qui s'élargissait niveau après niveau, les sens qui portaient désormais jusqu'aux limites du domaine, et les longues heures immobiles où il déchiffrait, patiemment, l'essence de tout ce qui passait à sa portée.
 
+Un soir de printemps, il fit d'ailleurs sa première expérience d'enseignant — à l'insu de l'élève.
+
+Shizune s'entraînait dans la cour, une feuille d'arbre collée au front, les sourcils noués par l'effort. L'exercice de concentration classique de l'Académie : maintenir la feuille par le seul flux du chakra. Elle y arrivait — dix secondes, vingt — puis la feuille glissait, et elle recommençait, avec cette obstination silencieuse qui était sa vraie nature sous les manières douces.
+
+Shin, depuis son panier, regardait. Et voyait.
+
+*Elle échoue toujours au même point. Son flux n'est pas trop faible, il est haché : elle synchronise l'émission sur sa respiration, et chaque expiration creuse un vide. Personne ne le lui a dit. Personne ne le voit, probablement — il faudrait des yeux de Hyūga, ou les miens.*
+
+Le problème était si simple, et la solution si évidente, qu'il en éprouva une sorte de démangeaison intellectuelle. Il ne pouvait pas parler — pas pour dire cela, pas à cet âge, pas sans faire voler en éclats six mois de couverture patiente. Mais il pouvait…
+
+Il attendit que la feuille tombe encore, et il éternua. Un éternuement de bébé, minuscule et parfaitement chronométré, pile sur l'expiration de Shizune.
+
+Elle tourna la tête, sourit — « À tes souhaits, Shin » — et se remit en position. Il éternua de nouveau. Même timing. Elle fronça les sourcils, amusée, puis intriguée ; et parce qu'elle était plus fine qu'elle n'en avait l'air, elle finit par remarquer ce que le hasard semblait souligner : la feuille glissait *quand elle soufflait*.
+
+« … Oh, » murmura Shizune.
+
+Elle dissocia le flux de la respiration. La feuille tint une minute entière.
+
+Ce soir-là, elle raconta à Tsunade qu'elle avait « compris toute seule » quelque chose d'important, et Tsunade la félicita, et personne ne regarda le bébé qui dormait déjà. Dans le noir, Shin classa froidement le résultat de l'expérience : *transmettre un savoir n'exige même pas la parole. Il suffit de voir exactement ce qui manque, et de le rendre visible.* De toutes les applications de son don, celle-ci, il en avait l'intuition, porterait un jour plus loin que toutes les autres.
+
 Car le domaine Senju, pour un possesseur de la Compréhension Défiant les Cieux, n'était pas une maison trop grande. C'était une bibliothèque.
 
 Les sceaux de protection à demi morts sur les murs d'enceinte lui enseignèrent les bases du fūinjutsu mieux qu'aucun rouleau — il lui suffisait de les *regarder*, de laisser sa compréhension descendre dans l'encre ancienne jusqu'à toucher l'intention du calligraphe. Le chakra résiduel des arbres du verger, imprégné en profondeur par des décennies de Mokuton, lui livra des pans entiers de la logique du Yang vivant. Et les mains de Tsunade — ces mains qui l'attrapaient, le portaient, le soignaient d'un rhume inexistant avec un luxe de précautions ridicule — laissaient à chaque contact filtrer un chakra médical d'une finesse si parfaite qu'il en remontait les principes comme on remonte un fleuve.
@@ -156,7 +176,9 @@ Il n'éprouvait aucune culpabilité à cette idée. Un général fait feu de tou
 
 Il tiendrait cette ligne-là aussi.
 
-Dehors, au-delà des murs du domaine, Konoha vivait sa paix armée — les patrouilles rentraient des frontières avec des civières, le Conseil siégeait tard, et quelque part dans les étages de la tour, des hommes prudents commençaient à s'écrire des notes au sujet des incidents étranges signalés, des mois plus tôt, près d'un ruisseau de l'est.
+Dehors, au-delà des murs du domaine, Konoha vivait sa paix armée — les patrouilles rentraient des frontières avec des civières, le Conseil siégeait tard, et quelque part dans les étages de la tour, des hommes prudents commençaient à s'écrire des notes au sujet des incidents étranges signalés, des mois plus tôt, près d'un ruisseau de l'est. Une anomalie de chakra de grande ampleur, sans auteur identifié, à moins d'une lieue des murs : le rapport avait suivi la voie hiérarchique, dormi dans trois tiroirs, et fini — les rapports sans réponse finissent toujours ainsi — dans les archives de ceux qui ne jettent rien.
+
+Shin l'ignorait encore, mais il l'aurait parié sans hésiter : dans un village ninja, le silence n'est jamais vide. Il s'en accommodait d'avance. Le jour où l'on viendrait poser des questions, il aurait des réponses prêtes — et, mieux que des réponses, il aurait de la valeur. On ne dissèque pas ce dont on a besoin.
 
 Le monde n'attendrait pas qu'il grandisse.
 
