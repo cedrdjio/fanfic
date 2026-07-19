@@ -195,3 +195,8 @@ Il chercha ses mots — pas dans son vocabulaire de couverture, dans l'autre, le
 « Grande-sœur veut apprendre ? »
 
 Dehors, la pluie redoubla. À l'intérieur, Tsunade Senju, cinquante ans de légendes à venir et un poignet guéri sous les yeux, entendit un enfant de deux ans proposer de lui enseigner l'impossible — et découvrit qu'elle n'avait pas du tout, mais alors pas du tout envie de dire non.
+
+Elle se pencha en avant, coudes sur les genoux, et pour la première fois depuis la mort de Dan, ses yeux ambrés brillèrent de cette lueur-là — celle de la joueuse devant une table où personne n'a encore jamais misé.
+
+« D'accord, petit monstre, » dit-elle. « Apprends-moi. »
+
