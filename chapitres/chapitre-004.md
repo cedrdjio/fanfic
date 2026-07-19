@@ -149,3 +149,47 @@ Elle plia le billet du Hokage, le glissa dans sa manche, et sourit — un sourir
 « Allez. On va le prendre, ce thé. Tu porteras le bleu, tu diras trois mots, tu en penseras trois mille, et le vieux singe repartira avec exactement l'histoire qu'on aura choisie. » Elle souleva l'enfant du tatami et le cala sur sa hanche, geste devenu machinal. « Bienvenue en politique, petit monstre. Tu vas adorer. »
 
 *Oui,* pensa Kurogami Shin, avec une froide certitude. *Probablement.*
+
+⁂
+
+Le thé fut, comme annoncé, excellent.
+
+Le bureau du Sandaime sentait le tabac et le vieux papier. Sarutobi Hiruzen les reçut sans son chapeau, en grand-père affable, et Shin comprit dès le seuil pourquoi cet homme avait survécu à deux guerres et à trente ans de Conseil : tout, dans cette pièce, était disposé pour rassurer, et rien n'y était innocent. Le plateau de thé tournait le dos à la fenêtre pour que la lumière tombe sur le visage des visiteurs. Les dossiers empilés « en désordre » présentaient des tranches vierges. Et le regard du vieil homme, sous les paupières lourdes, pesait chaque chose avec une balance d'orfèvre.
+
+« Ainsi voilà le fameux Shin, » dit le Hokage en se penchant, mains sur les genoux, à hauteur d'enfant. « On me dit que tu as sauvé la petite Kato d'un vilain accident. Deux ans à peine ! Konoha a de la chance qu'un si grand don soit tombé dans de si bonnes mains. »
+
+*Trois informations en une phrase aimable,* nota Shin. *Il sait pour le poignet — donc l'hôpital parle. Il date mon âge — donc il a lu un dossier. Et il attribue le mérite à Tsunade — donc il teste qui répond à ma place.*
+
+Il fit ce que fait un enfant de deux ans complimenté par un monsieur qui sent la pipe : il s'abrita à moitié derrière le bras de Tsunade, et dit, avec une articulation appliquée :
+
+« Shizune saignait. J'ai fait comme grande sœur montre. »
+
+« Comme grande sœur montre, » répéta Hiruzen, ravi. « Et voilà. »
+
+Le reste de l'entretien se joua au-dessus de sa tête, entre adultes, exactement comme Tsunade l'avait scénarisé. Elle servit l'histoire par morceaux réticents — une lignée inconnue, sans doute ; un don de soin, indéniablement ; des tests ? hors de question avant ses dix ans, Sarutobi-sensei, c'est un enfant, pas un sujet d'étude — et le vieil homme reçut chaque morceau avec une gourmandise mesurée, posa deux questions de trop pour vérifier qu'on les esquivait, et n'insista pas.
+
+Ce fut à la fin, alors que Tsunade rassemblait l'enfant et les politesses, que le Professeur montra, une seconde, le fond de son jeu.
+
+« Tsunade. » Sa voix avait perdu le moelleux du thé. « Je suis vieux, pas aveugle. Un don pareil attirera des regards — certains depuis l'étranger, d'autres, hélas, depuis l'intérieur de nos murs. Tant que cet enfant grandit sous ton toit, il grandit sous le mien. Je voulais que tu l'entendes de ma bouche. »
+
+Un silence.
+
+« Et j'aimerais, » ajouta-t-il en se tournant vers Shin avec un sourire redevenu grand-paternel, « qu'il vienne me voir de temps en temps. Un vieil homme s'instruit beaucoup au contact des enfants. Bien plus, souvent, qu'au contact de leurs tuteurs. »
+
+Sur le chemin du retour, perché sur la hanche de Tsunade dans le soir qui tombait, Shin classa l'entretien.
+
+*Sarutobi Hiruzen : n'a pas cru la moitié de l'histoire, a accepté le tout. Parce qu'un soigneur prodige loyal à Konoha vaut mieux qu'une vérité qui fâche — et parce qu'il pense avoir le temps de compléter le dossier. Il protège, il observe, il attend. Un allié, tant que nos intérêts convergent. Ils convergeront : j'y veillerai.*
+
+*Et il m'a invité à revenir seul. Il veut la version sans avocat.* Shin faillit sourire dans le col de Tsunade. *Il l'aura. Soigneusement rédigée.*
+
+« Arrête de comploter, je t'entends penser, » dit Tsunade sans le regarder.
+
+« Le thé était bon, » dit l'enfant.
+
+« C'est bien ce que je disais. »
+
+Au-dessus d'eux, les réverbères du village s'allumaient un à un, et la falaise aux quatre visages s'éteignait dans le crépuscule. Quelque part derrière eux, dans la tour, un vieil homme rallumait sa pipe en rouvrant un mince dossier sans nom ; et très loin à l'est, dans un sous-sol que peu de cartes mentionnaient, un autre vieil homme, à qui l'on rapportait tout ce qui entrait dans le bureau du premier, lisait deux lignes au sujet d'un enfant guérisseur — et posait dessus, en silence, une petite pierre patiente.
+
+Le jeu était ouvert. Shin, qui n'avait pas encore trois ans, prit note qu'il jouait désormais sur deux échiquiers.
+
+Il en faudrait bien davantage pour l'inquiéter. Il avait toujours préféré jouer en premier.
