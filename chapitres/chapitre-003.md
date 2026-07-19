@@ -62,7 +62,23 @@ La théorie tint en une après-midi. La pratique, il le savait déjà, coûterai
 
 ⁂
 
-Elle compta trois semaines plus tard, et il ne choisit ni le lieu, ni l'heure, ni la cible.
+Les nuits suivantes, il s'entraîna.
+
+Pas à produire la goutte — il n'en avait pas les moyens, et gaspiller sa mer entière pour une démonstration sans témoin aurait été le geste d'un enfant, ce qu'il n'avait jamais été, pas même enfant. Il s'entraîna à tout ce qui précédait la goutte : la condensation.
+
+Chaque nuit, quand les deux cœurs de la maison avaient pris leur rythme de sommeil, il s'asseyait dans son lit à barreaux — le mobilier le plus humiliant de ses deux vies — et il repliait son Qi. Une couche. Il la tenait dix battements, la déployait, recommençait. Puis deux couches. La deuxième écrasait la première ; il apprit à équilibrer les pressions comme on voûte un pont, par la géométrie et non par la force. Au bout d'une semaine, il tenait quatre couches. Au bout de deux, six.
+
+La septième lui coûta trois nuits d'échecs — il y avait, entre six et sept, un seuil de résonance que sa théorie n'avait pas prévu, et il nota le fait avec satisfaction : une théorie que la pratique ne corrige jamais est une théorie qu'on n'a pas testée. Il ajusta l'angle de repli, décala les rythmes, et la septième corolle prit sa place.
+
+La huitième et la neuvième, il ne les tenta pas. Son étang de Qi était trop petit pour les nourrir toutes en répétition — mais la structure était comprise, gravée, prête. Le jour venu, elle tiendrait.
+
+*Voilà la différence entre savoir et pouvoir,* songea-t-il, une aube grise, en regardant ses mains minuscules. *La Compréhension me donne le savoir en un regard. Le pouvoir, lui, se paie comptant, nuit après nuit. Bien. Un pouvoir qu'on ne paie pas est un pouvoir qu'on ne contrôle pas.*
+
+Il ignorait qu'il aurait à payer si tôt.
+
+⁂
+
+La première goutte compta trois semaines plus tard, et il ne choisit ni le lieu, ni l'heure, ni la cible.
 
 C'était un soir gris de fin d'hiver. Tsunade était sortie — une convocation de l'hôpital, un cas que personne d'autre ne voulait signer. Shizune, studieuse, avait décidé de profiter de l'absence de sa maîtresse pour s'entraîner *sérieusement* : la théorie de la *Palme Mystique*, elle la récitait par cœur ; ce qui lui manquait, c'était un patient.
 
