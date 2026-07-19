@@ -6390,3 +6390,913 @@ Ses yeux devinrent vigilants, et son corps prit instinctivement une posture déf
 *Fin des chapitres 102 à 106.*
 
 *À suivre — Les chapitres 107 à 111 seront prêts sur demande.*
+# L'Immortel de Konoha
+### Traduction française — Chapitres 107 à 111
+
+## Chapitre 107 — Hidan est-il en train de mourir ?
+
+Les branches oscillèrent tandis que deux silhouettes vêtues de robes noires à nuages rouges sautaient des arbres, atterrissant à dix mètres devant Yugito.
+
+« Oh là là, nous avons été repérés », dit l'un des hommes aux cheveux argentés avec un sourire en coin.
+
+Il tenait une faux à trois lames dans sa main. « Quels sens aiguisés tu as, Jinchûriki de la Deux-Queues. »
+
+« L'Organisation Akatsuki… » Yugito reconnut leur tenue, son expression devenant grave. « Que voulez-vous ? »
+
+« Nous sommes là pour te capturer, bien sûr, ma chère Deux-Queues. »
+
+Hidan grimaça et lécha la lame de sa faux. « J'espère que ton sang satisfera Seigneur Jashin. »
+
+Kakuzu jeta un regard froid à Hidan. « Souviens-toi, notre mission est de la capturer vivante. Ne la tue pas. »
+
+« Je sais, je sais », dit Hidan en agitant sa main avec impatience.
+
+« Mais avant de la capturer, laisse-moi d'abord profiter du plaisir du combat ! »
+
+Yugito n'hésita pas et libéra immédiatement le pouvoir de la Deux-Queues.
+
+Des flammes bleues jaillirent de son corps, formant la silhouette d'un chat géant.
+
+« Vous voulez me capturer ? Ce ne sera pas si facile ! » rugit Yugito. Le pouvoir de la Deux-Queues augmentait considérablement sa vitesse et sa force.
+
+Presque instantanément, le corps de Yugito fut enveloppé de flammes bleues.
+
+Le pouvoir de la Deux-Queues faisait rayonner en elle une aura puissante.
+
+Ses yeux se transformèrent en pupilles de chat, et ses ongles devinrent aussi tranchants que des couteaux.
+
+En même temps, une férocité bestiale apparut sur son visage.
+
+« Miaou, miaou, miaou~ Jeune demoiselle, échauffons-nous ! »
+
+Voyant sa réaction, Hidan rit étrangement et balança sa faux à trois lames, complètement indifférent au pouvoir de la Deux-Queues.
+
+Kakuzu observait froidement, ses cinq cœurs battant en lui.
+
+Les choses commençaient à devenir un peu hors de contrôle.
+
+Il devait être prêt à intervenir et à soumettre le Jinchûriki à tout moment.
+
+Cependant, au vu de la situation, ils devaient se préparer à un long combat.
+
+« Technique du Chat de Feu ! » Yugito agit comme si elle n'avait pas entendu ce qu'il avait dit.
+
+Elle ouvrit la bouche et cracha une série de boules de feu bleues, se dirigeant droit vers Hidan.
+
+« Hahaha ! Des attaques comme ça sont inutiles contre moi ! »
+
+De si petites attaques n'étaient que de l'humiliation de soi-même.
+
+Ce n'était qu'une question de savoir si l'adversaire augmenterait l'intensité de ses attaques.
+
+Cependant, en regardant l'attaque arriver.
+
+Hidan n'esquiva ni n'évita, laissant les boules de feu frapper son corps.
+
+« Boum ! » Une forte explosion retentit.
+
+Hidan fut soufflé directement, son corps déchiqueté en morceaux, du sang éclaboussant partout.
+
+Pourtant, il maintint son sourire dément. « Si exaltant ! Cette douleur ! »
+
+Bien sûr, si la force était un peu plus forte.
+
+Cela pourrait être encore mieux.
+
+Voyant l'expression de Hidan, Yugito ne put s'empêcher d'écarquiller les yeux, incapable de croire ce qu'elle voyait. « Comment est-ce possible… »
+
+C'était son attaque la plus fière.
+
+Comment pouvait-elle n'avoir aucun effet en ce moment ?
+
+Et l'adversaire en profitait ?
+
+C'était complètement impossible.
+
+Mais la personne en face d'elle semblait complètement inconsciente de quoi que ce soit d'inhabituel.
+
+Kakuzu soupira. « Hidan, arrête de jouer. Capture-la sérieusement ; nous avons un temps limité. »
+
+« Je sais, je sais ! » Entendant les paroles de Kakuzu, le corps de Hidan se réassembla étrangement.
+
+Comme s'il n'avait subi aucun dommage, il dit : « Mais sans rituel sacrificiel, je ne peux pas me motiver ! »
+
+Voyant la situation, l'expression de Yugito devint très grave.
+
+L'ennemi auquel elle faisait face était extrêmement gênant.
+
+Puisque c'était le cas, il n'y avait plus besoin de se retenir maintenant.
+
+Elle libéra immédiatement tout le pouvoir de la Deux-Queues, se préparant pour un combat à mort.
+
+« Forme Complète de la Deux-Queues, Danse des Flammes du Chat ! »
+
+Juste au moment où elle se préparait à attaquer, une étrange ondulation traversa l'air.
+
+Les trois sentirent simultanément une aura terrifiante approcher.
+
+« Qu'est-ce… que c'est que ce pouvoir ? »
+
+Kakuzu fronça les sourcils étroitement.
+
+Ce pouvoir était trop fort.
+
+En tant que quelqu'un qui avait vécu près de cent ans.
+
+Il avait vu presque tous les puissants du Monde Ninja.
+
+Pourtant, il n'avait jamais ressenti une telle pression terrifiante.
+
+Entendant les paroles de Kakuzu, Hidan arrêta également ses mouvements, le sourire sur son visage se figeant.
+
+« Hé, Kakuzu, qu'est-ce qui se passe ? Même Seigneur Jashin ne m'a pas donné une sensation comme ça… »
+
+Après avoir remarqué leurs actions, Yugito fut également très choquée.
+
+C'était vraiment trop anormal.
+
+Cependant, un avantage était que ce pouvoir ne semblait pas être dirigé contre elle.
+
+Cela ne leur donna pas beaucoup de temps pour réfléchir.
+
+La seconde suivante, l'espace se tordit légèrement.
+
+Une silhouette vêtue de blanc apparut soudainement entre les trois.
+
+« Hayashi Nanaya ! »
+
+Au moment où la silhouette vêtue de blanc apparut, Kakuzu reconnut l'arrivant, son expression sous le masque devenant extrêmement laide.
+
+« Le Cinquième Hokage de Konoha ? Pourquoi est-il ici ? »
+
+Hidan serra fermement la faux dans sa main.
+
+Et s'il possédait un corps immortel ?
+
+Le jeune homme devant lui n'était pas quelqu'un qu'il pouvait gérer.
+
+Et comment la personne devant lui était-elle arrivée à cet endroit ? C'était comme s'il connaissait leur emplacement.
+
+Le regard de Hayashi Nanaya balaya calmement les deux membres de l'Organisation Akatsuki, disant indifféremment : « Donc c'était vraiment vous deux qui chassiez la Jinchûriki de la Deux-Queues. »
+
+Entendant Hayashi Nanaya parler.
+
+Yugito regarda le jeune homme vêtu de blanc qui était apparu, ne sachant momentanément comment réagir.
+
+Ce jeune homme, qui semblait n'avoir que dix-sept ou dix-huit ans.
+
+Était en fait le Cinquième Hokage de Konoha, qui était récemment devenu célèbre dans tout le Monde Ninja ?
+
+« Hayashi Nanaya, es-tu ici pour nous voler notre proie ? » demanda Hidan avec un sourire.
+
+En surface, il était détendu, mais son corps était déjà tendu, prêt à répondre à toute attaque possible à tout moment.
+
+« Non », Hayashi Nanaya secoua légèrement la tête. « Je suis ici pour vous éliminer. »
+
+Dès qu'il eut fini de parler, sa silhouette disparut de l'endroit où il se tenait.
+
+« Attention ! » Entendant les paroles de Hayashi Nanaya, Kakuzu cria, mais il était déjà trop tard.
+
+Hayashi Nanaya était déjà apparu derrière Hidan, pointant un doigt — « Différenciation du Qi d'Épée ! »
+
+D'innombrables Qi d'Épée invisibles transpercèrent instantanément tout le corps de Hidan.
+
+Coupant son corps en d'innombrables fragments, aussi fins que de la poussière.
+
+« Ceci… quel genre de technique est-ce… »
+
+La tête de Hidan vola dans les airs, ses yeux remplis d'incrédulité. « Mais j'ai un corps immortel… »
+
+Comment n'avait-il pas pu sentir l'attaque de Hayashi Nanaya ?
+
+Surtout puisque l'adversaire n'avait pas attaqué soudainement.
+
+Sentant sa confusion.
+
+Hayashi Nanaya le regarda indifféremment. « Ton corps immortel repose sur la malédiction du Dieu du Mal. »
+
+« Permettant à ton Âme de rester connectée à chaque partie de ton corps. »
+
+« Mais mon mouvement, 'Différenciation du Qi d'Épée', ne coupe pas seulement ton Corps Physique, mais tranche aussi ta connexion avec le Dieu du Mal. »
+
+Après avoir compris le mouvement de Hayashi Nanaya.
+
+La peur apparut enfin dans les yeux de Hidan. « Non… impossible… Seigneur Jashin ne m'abandonnerait pas… »
+
+Comme il parlait, il se prépara à réassembler son corps.
+
+Mais peu importe ce qu'il faisait.
+
+Il n'y avait aucun signe que les fragments de son corps se réassemblent.
+
+Ils commencèrent même à pourrir à une vitesse visible à l'œil nu.
+
+Comment est-ce possible ?
+
+Comment son corps pouvait-il pourrir ?
+
+Quelque chose devait avoir mal tourné quelque part.
+
+Hidan vit l'état de son corps.
+
+Et commença à ressentir de la peur.
+
+Il regarda même Hayashi Nanaya avec un regard plein de supplication d'aide.
+
+« Hidan ! » Kakuzu sortit de son choc.
+
+## Chapitre 108 — Assaut de fou
+
+Voyant la situation de Hidan, Kakuzu fut furieux.
+
+Cinq tentacules noirs jaillirent instantanément de son dos.
+
+Chacun représentait l'un de ses cœurs, et son regard vers Hayashi Nanaya était rempli d'intention de tuer. « Tu mérites de mourir ! »
+
+« Libération de Terre : Rivière de Flux Terrestre ! »
+
+« Libération de Feu : Technique de la Grande Boule de Feu ! »
+
+« Libération de Vent : Dommage de Pression ! »
+
+« Libération de Foudre : Fausse Obscurité ! »
+
+« Libération d'Eau : Vague d'Eau Collisionnelle ! »
+
+Les cinq ninjutsu élémentaires attaquèrent Hayashi Nanaya simultanément, avec assez de puissance pour détruire une petite colline.
+
+Voyant cela, Yugito se retira précipitamment à une distance sûre : « Ce fou n'épargne même pas ses propres gens ? »
+
+Hayashi Nanaya resta sur place, faisant face à l'assaut combiné des cinq ninjutsu, ses lèvres se courbant légèrement vers le haut : « Trop faible. »
+
+« Force de Suppression des Huit Désolations ! »
+
+Une force invisible éclata du corps de Hayashi Nanaya, se propageant vers l'extérieur.
+
+Au moment où les cinq ninjutsu entrèrent en contact avec cette force, ils se désintégrèrent et disparurent comme s'ils avaient rencontré leur ennemi naturel.
+
+Les pupilles de Kakuzu se rétrécirent : « C'est impossible… »
+
+Hayashi Nanaya avança, et à chaque pas, le sol sous ses pieds tremblait légèrement : « Kakuzu, avoir cinq cœurs t'accorde en effet une quasi-immortalité. »
+
+« Mais face à un pouvoir absolu, de tels tours sont inutiles. »
+
+« Technique de la Rosée Spirituelle aux Neuf Fleurs : Choc de Pouvoir Spirituel ! »
+
+Hayashi Nanaya poussa sa paume vers l'extérieur, et une ondulation invisible de pouvoir spirituel frappa vers Kakuzu.
+
+Le corps de Kakuzu fut frappé, mais il ne subit aucune blessure externe ; il resta simplement là, stupéfait.
+
+« Qu'as-tu… fait ? » demanda Kakuzu, regardant son corps avec confusion.
+
+Hayashi Nanaya expliqua calmement : « Ce 'Choc de Pouvoir Spirituel' que je viens d'utiliser a brisé tous les cinq cœurs à l'intérieur de ton corps. »
+
+« La seule raison pour laquelle tu peux encore parler maintenant est parce que la mort cérébrale prend quelques secondes. »
+
+« Impossible… » La voix de Kakuzu s'affaiblit, et la peur apparut enfin sur son visage.
+
+« J'ai vécu pendant tant d'années… »
+
+Avant qu'il ne pût finir, son corps s'effondra sur le sol avec un bruit sourd, complètement dénué de vie.
+
+Tout le processus ne prit que quelques dizaines de secondes, et deux membres de l'Organisation Akatsuki furent facilement tués par Hayashi Nanaya juste comme ça.
+
+Yugito resta là, stupéfaite.
+
+Le pouvoir de la Deux-Queues avait déjà été retiré dans son corps à un moment donné.
+
+Elle n'avait jamais vu un combat aussi terrifiant.
+
+Ou plutôt, cela ne pouvait même pas être appelé un combat ; c'était un écrasement unilatéral.
+
+« Es-tu… es-tu vraiment le Cinquième Hokage de Konoha ? » Yugito trouva enfin sa voix et demanda, tremblante.
+
+Hayashi Nanaya se tourna pour la regarder et hocha la tête : « Jinchûriki de la Deux-Queues Yugito, je suis venu ici spécifiquement pour te protéger. »
+
+« Me protéger ? » Yugito était légèrement confuse. « Pourquoi ? Konoha et le Village Caché des Nuages ne sont pas alliés. »
+
+« Parce que l'objectif de l'Organisation Akatsuki est toutes les Bêtes à Queues. »
+
+Hayashi Nanaya expliqua : « Ils veulent collecter toutes les Bêtes à Queues pour réaliser un certain plan terrifiant. Je ne peux pas rester les bras croisés. »
+
+Yugito resta silencieuse un moment, puis s'inclina respectueusement : « Merci de m'avoir sauvée. »
+
+« Pas besoin de remerciements. » Hayashi Nanaya agita sa main. « Cependant, tu ferais mieux de retourner au Village Caché des Nuages dès que possible. »
+
+« Et d'informer le Raikage de la menace de l'Organisation Akatsuki. »
+
+« J'ai déjà dépêché des ninjas de Konoha pour assister ; ils arriveront bientôt. »
+
+« Tu ne viens pas avec moi voir le Raikage ? » demanda Yugito avec curiosité.
+
+Hayashi Nanaya secoua la tête : « J'ai d'autres affaires à régler. »
+
+« L'Organisation Akatsuki n'a pas seulement ces deux membres ; les autres sont toujours actifs. »
+
+Après avoir parlé, sa silhouette devint progressivement transparente et finit par disparaître complètement dans les airs.
+
+Ne laissant qu'une seule phrase : « Prends soin de toi, Jinchûriki de la Deux-Queues. »
+
+Yugito regarda l'endroit où Hayashi Nanaya avait disparu, le choc dans son cœur incapable de se calmer pendant longtemps.
+
+C'est ça le Cinquième Hokage de Konoha ?
+
+Une telle force dépasse de loin le cadre d'un Ninja ; c'est plus comme le légendaire Sage des Six Voies !
+
+Juste à ce moment, elle sentit plusieurs Chakras approcher rapidement.
+
+« Jinchûriki de la Deux-Queues, ça va ? » Kakashi apparut dans son champ de vision, menant Might Guy et d'autres Jônins d'élite de Konoha.
+
+« Es-tu les ninjas de Konoha envoyés par Seigneur Hayashi Nanaya ? » Yugito les regarda, perplexe.
+
+Kakashi hocha la tête : « Seigneur Hayashi Nanaya est-il déjà venu ici ? »
+
+Yugito pointa les cadavres des membres de l'Organisation Akatsuki sur le sol : « Il a déjà réglé ces deux membres de l'Organisation Akatsuki. »
+
+« Tout le processus… » Elle fit une pause, semblant chercher les mots appropriés.
+
+« Tout le processus était si rapide que j'ai à peine vu comment il a attaqué. »
+
+Kakashi regarda les cadavres sur le sol et soupira doucement : « Ce sont Hidan et Kakuzu, deux membres de l'Organisation Akatsuki avec une force considérable. »
+
+« Je ne m'attendais pas à ce que Seigneur Hayashi Nanaya les règle si rapidement. »
+
+« Quel genre de personne est-il exactement ? »
+
+Yugito ne put s'empêcher de demander : « Sa force… a dépassé mon imagination. »
+
+Kakashi resta silencieux un moment, puis répondit doucement : « Pour être honnête, je ne sais pas non plus où se situent les limites de Seigneur Hayashi Nanaya. »
+
+« Il est toujours capable de nous apporter des surprises et de démontrer encore plus de pouvoir. »
+
+« Mais une chose est certaine », Might Guy intervint soudainement, un sourire brillant sur son visage.
+
+« Seigneur Hayashi Nanaya est la flamme de jeunesse la plus éblouissante de Konoha ! Sa volonté mènera Konoha vers un avenir encore plus glorieux ! »
+
+Yugito regarda ce Jônin trop passionné, se sentant quelque peu sans voix.
+
+Mais dans son cœur, elle devait admettre qu'avec un Hokage comme Hayashi Nanaya, l'avenir de Konoha valait vraiment la peine d'être attendu.
+
+« Allons-y, nous retournerons d'abord au Village Caché des Nuages et rapporterons tout ce qui s'est passé ici au Raikage. »
+
+dit Yugito : « Quand le Raikage apprendra que Seigneur Hayashi Nanaya est intervenu personnellement pour me protéger, il réévaluera sûrement la relation avec Konoha. »
+
+Kakashi hocha la tête et mena l'escouade de retour au Village Caché des Nuages avec Yugito.
+
+En chemin, son cœur était rempli d'admiration pour Hayashi Nanaya.
+
+La force du Cinquième Hokage devenait de plus en plus puissante, dépassant de loin l'imagination des ninjas ordinaires.
+
+Pendant ce temps, le vrai corps de Hayashi Nanaya se reposait les yeux fermés dans une grotte à l'extérieur du village de Konoha.
+
+« Hidan et Kakuzu ont déjà été réglés par le Clone. »
+
+Hayashi Nanaya se murmura à lui-même, une trace de satisfaction flashant dans ses yeux : « Ensuite, ce sera au tour des autres membres de l'Organisation Akatsuki. »
+
+Il ouvrit lentement les yeux, et une lumière dorée brilla en eux : « Surtout Nagato… l'homme qui possède le Rinnegan, le vrai leader de l'Organisation Akatsuki. »
+
+Hayashi Nanaya se leva, sortit de la grotte et regarda le village de Konoha au loin.
+
+Après avoir absorbé le pouvoir du Yang Neuf-Queues.
+
+Sa cultivation avait atteint le Stade Avancé de la Transformation de l'Âme.
+
+Il n'était qu'à un pas du Stade du Raffinement du Vide.
+
+Une telle force était presque équivalente à l'invincibilité dans le Monde de Naruto.
+
+Même si le légendaire Sage des Six Voies devait réapparaître, il serait probablement incapable de rivaliser avec lui.
+
+Mais Hayashi Nanaya ne devint pas complaisant à cause de cela.
+
+Pour résoudre complètement la menace de l'Organisation Akatsuki, il devait encore être plus prudent.
+
+Surtout le Rinnegan de Nagato ; c'était la légendaire Limite Sanguine de Rang Divin, contenant des possibilités infinies.
+
+« Il est temps de rencontrer personnellement ce possesseur du Rinnegan. » Les lèvres de Hayashi Nanaya se courbèrent légèrement vers le haut, ses yeux brillant d'une lumière sage.
+
+## Chapitre 109 — Ninjutsu Sensoriel
+
+Village Caché de la Pluie, un Village Ninja enveloppé de pluie toute l'année.
+
+C'était la vraie base de l'Organisation Akatsuki, et aussi la résidence du possesseur du Rinnegan, Nagato.
+
+Au sommet de la haute tour, Nagato regardait le Village sous la pluie.
+
+Une mystérieuse lumière violette scintillait dans son Rinnegan.
+
+À travers la pluie, il pouvait percevoir chaque changement dans le Village ; aucun étranger ne pouvait échapper à sa perception.
+
+« Nagato, il y a une situation. » Konan marcha depuis l'arrière, une trace d'inquiétude sur son visage.
+
+« Nous n'avons reçu aucune nouvelle de Hidan et Kakuzu pendant trois jours. »
+
+Nagato fronça légèrement les sourcils : « Leur mission était seulement de capturer la Jinchûriki de la Deux-Queues ; ils n'auraient pas dû être hors de contact pendant si longtemps. »
+
+« Je crains qu'ils n'aient rencontré des ennuis. » Konan se tenait à côté de Nagato, son regard également jeté au loin.
+
+« Récemment, les grands Villages Ninja sont devenus beaucoup plus vigilants, surtout le nouveau Hokage de Konoha, Hayashi Nanaya. On dit que sa force est étonnante. »
+
+Nagato resta silencieux un moment : « Envoie Deidara et Sasori vérifier la situation. »
+
+« Si Hidan et Kakuzu ont vraiment rencontré des ennuis, nous devons aussi confirmer l'emplacement de la Jinchûriki de la Deux-Queues dès que possible. »
+
+« J'ai déjà fait les arrangements. » Konan hocha la tête. « Cependant, j'ai le sentiment que les choses ne sont pas si simples. »
+
+Juste à ce moment, la pluie dans tout le Village Caché de la Pluie cessa soudainement de tomber.
+
+Elle resta suspendue en l'air, formant une scène étrange.
+
+« Que se passe-t-il ? » Konan regarda par la fenêtre avec surprise. « Ton Ninjutsu de Perception du Pays de la Pluie… »
+
+L'expression de Nagato devint extrêmement grave : « Quelqu'un a interféré avec mon ninjutsu. »
+
+« Boum ! »
+
+Un fort bruit résonna, et une fissure spatiale massive apparut soudainement sur la place devant la haute tour.
+
+Une lumière dorée éblouissante émana de la fissure, illuminant le ciel sombre de tout le Village Caché de la Pluie.
+
+« C'est… » Le Rinnegan de Nagato fixa la fissure, son expression sans précédent sérieuse.
+
+De la fissure, une silhouette en robes blanches sortit lentement.
+
+Il avait l'air jeune et beau, mais ses yeux étaient aussi profonds que la mer, comme s'ils contenaient une sagesse infinie.
+
+« Hayashi Nanaya… » Nagato reconnut enfin le visiteur, son ton rempli de choc. « Le Cinquième Hokage de Konoha. »
+
+Konan regarda le jeune homme sur la place, son cœur rempli de choc.
+
+« C'est Hayashi Nanaya ? Le jeune qui a vaincu Orochimaru et tué le Shinigami ? »
+
+« Comment a-t-il trouvé cet endroit ? Et comment a-t-il pu briser ton Ninjutsu de Perception du Pays de la Pluie ? »
+
+« Non seulement cela », la voix de Nagato était exceptionnellement grave.
+
+« Ce qu'il vient d'utiliser devrait être une sorte de ninjutsu espace-temps. »
+
+« Il a déchiré l'espace pour arriver, et même mon Rinnegan n'a pas réussi à le percevoir à l'avance. »
+
+Sur la place, Hayashi Nanaya regarda la haute tour, les coins de sa bouche légèrement relevés : « Nagato, je sais que tu es là-haut. Pourquoi ne pas descendre pour discuter ? »
+
+Sa voix n'était pas forte, pourtant elle atteignit clairement les oreilles de Nagato et Konan, comme si elle résonnait directement à côté d'eux.
+
+« Il peut même entendre notre conversation ? » Konan regarda Nagato avec surprise. « Cela dépasse le cadre du ninjutsu ! »
+
+Nagato resta silencieux un moment, puis se leva lentement : « Puisque le Cinquième Hokage de Konoha est venu visiter en personne, je dois naturellement le recevoir correctement. »
+
+« Nagato, tu ne peux pas y aller ! » Konan le bloqua précipitamment.
+
+« Sa force est trop bizarre, nous ne savons presque rien sur lui ! »
+
+« Précisément à cause de cela, je dois le rencontrer. »
+
+Nagato dit calmement : « S'il voulait me tuer, étant donné les capacités qu'il vient de démontrer, je crains qu'il n'ait déjà agi. »
+
+Bientôt, Nagato pilota une Marionnette de Douleur jusqu'à la place, se tenant face à face avec Hayashi Nanaya.
+
+« Nagato, ou devrais-je t'appeler Douleur ? » Hayashi Nanaya regarda la Marionnette devant lui, une pointe de taquinerie dans le ton.
+
+« Je sais très bien où ton vrai corps est caché. Je te donne juste un peu de dignité. »
+
+Douleur Voie Deva regarda Hayashi Nanaya sans expression : « Le Cinquième Hokage est venu visiter en personne ; puis-je demander pourquoi ? »
+
+« Je pense que tu le sais très bien dans ton cœur », dit Hayashi Nanaya calmement.
+
+« Je suis venu ici pour arrêter ton plan de collecter les Bêtes à Queues. »
+
+Douleur Voie Deva fronça légèrement les sourcils : « Tu en sais certainement beaucoup. »
+
+« Non seulement cela », continua Hayashi Nanaya, « tes deux membres, Hidan et Kakuzu, ont déjà été réglés par moi. »
+
+L'expression de Douleur Voie Deva montra enfin une trace de fluctuation : « Tu as tué Hidan et Kakuzu ? »
+
+« Pour être précis, c'était l'un de mes Clones qui s'en est occupé. »
+
+Hayashi Nanaya le corrigea : « Personnellement, j'ai été dans le village de Konoha tout ce temps. »
+
+Douleur Voie Deva resta silencieux un moment, puis parla : « Hayashi Nanaya, ta force dépasse en effet les attentes. »
+
+« Mais connais-tu le vrai but de l'Organisation Akatsuki ? »
+
+« Nous sommes ici pour créer la vraie paix. »
+
+« En collectant les Bêtes à Queues et en créant le Tsukuyomi Infini, pour piéger tout le monde dans un rêve de paix ? »
+
+Hayashi Nanaya sourit avec moquerie : « Ce n'est rien de plus qu'un mensonge instillé en toi par Uchiha Obito. »
+
+Les pupilles de Douleur Voie Deva se contractèrent soudainement : « Tu sais même ça ? »
+
+« Je sais bien plus que tu n'imagines », dit Hayashi Nanaya indifféremment.
+
+« Nagato, tu étais à l'origine une bonne personne qui poursuivait la paix, mais malheureusement, tu as été utilisé par Uchiha Obito. »
+
+« Tu penses que tu réalises la paix, mais en réalité, tu aides seulement Obito à réaliser son plan. »
+
+« Et derrière Obito est une existence nommée Zetsu Noir. »
+
+« Son vrai but est de ressusciter Kaguya, aussi connue comme la 'Déesse Lapin'. »
+
+Douleur Voie Deva fut incapable de parler pendant longtemps, son Rinnegan fixant Hayashi Nanaya, semblant essayer de confirmer si ce jeune homme possédait vraiment une telle perspicacité inconcevable.
+
+« Qui es-tu exactement ? » Douleur Voie Deva posa enfin cette question.
+
+« Une personne ordinaire ne pourrait pas possible connaître ces choses. »
+
+Hayashi Nanaya sourit légèrement : « Je suis juste un Hokage qui veut protéger la paix. »
+
+« Hypocrisie ! » Douleur Voie Deva rugit soudainement.
+
+« Il n'y a jamais eu de vraie paix dans le monde ninja ! »
+
+« Seulement une guerre et une haine sans fin ! »
+
+« Vous, les soi-disant Cinq Grandes Nations, traitez simplement les petits Villages Ninja comme des pions, les manipulant à volonté ! »
+
+« La vraie paix ne peut être atteinte que par la Douleur ! »
+
+« Seulement en laissant tout le monde expérimenter la Douleur peuvent-ils vraiment comprendre la préciosité de la paix ! »
+
+Hayashi Nanaya secoua la tête : « Nagato, ta pensée est trop extrême. »
+
+« Poursuivre la paix en créant la Douleur est en soi une contradiction. »
+
+« De plus, ton soi-disant 'laisser tout le monde expérimenter la Douleur' n'est que d'imposer ta propre Douleur aux autres. »
+
+« Ce n'est pas la paix, mais la tyrannie. »
+
+« Tais-toi ! » rugit Douleur Voie Deva. « Tu ne comprends pas la vraie Douleur du tout ! »
+
+« Shinra Tensei ! »
+
+Une puissante force répulsive éclata de l'intérieur de Douleur Voie Deva, poussant dans toutes les directions.
+
+Le sol de toute la place se fissura instantanément, et les bâtiments environnants s'effondrèrent également les uns après les autres.
+
+Cependant, quand la poussière se dissipa, Hayashi Nanaya était toujours debout sur place, ses vêtements flottant, mais lui-même était complètement indemne.
+
+« C'est… impossible… » Douleur Voie Deva écarquilla les yeux.
+
+Shinra Tensei était son ninjutsu répulsif le plus puissant, suffisant pour détruire tout le Village.
+
+Mais le jeune homme devant lui avait complètement ignoré ce coup.
+
+## Chapitre 110 — Le Pouvoir du Rinnegan
+
+« Ton Rinnegan est en effet puissant », commenta Hayashi Nanaya.
+
+« Mais malheureusement, tu n'es pas le vrai Réincarné du Sage des Six Voies et ne peux pas déchaîner la pleine puissance du Rinnegan. »
+
+« De plus, tu fais face à un Cultivateur au Stade Avancé de la Transformation de l'Âme en ce moment. »
+
+« Même si le vrai Sage des Six Voies était ici, je crains qu'il aurait du mal à faire quoi que ce soit contre moi. »
+
+« Stade Avancé de la Transformation de l'Âme ? Cultivateur ? » Douleur Voie Deva était perplexe ; il n'avait jamais entendu ces termes auparavant.
+
+« Assez parlé. Laisse-moi être témoin du pouvoir du Rinnegan. »
+
+Hayashi Nanaya tendit une main dans un geste d'invitation. « Par tous les moyens, utilise toute ta force. »
+
+Douleur Voie Deva rugit, et tous les Six Sentiers de Douleur apparurent simultanément.
+
+C'étaient la Voie Deva, la Voie Asura, la Voie Humaine, la Voie Prêta, la Voie Animale, et la Voie Naraka.
+
+Les six Marionnettes de Douleur effectuèrent des signes de mains simultanément, libérant leurs ninjutsu les plus puissants.
+
+« Bansho Ten'in ! »
+
+« Arts Asura : Enfer Instantané ! »
+
+« Voie Humaine : Extraction d'Âme ! »
+
+« Voie Prêta : Extraction d'Âme ! »
+
+« Voie Animale : Technique d'Invocation : Statue Gedo ! »
+
+« Voie Naraka : Porte du Monde Souterrain ! »
+
+Six ninjutsu terrifiants attaquèrent Hayashi Nanaya simultanément, avec assez de puissance pour détruire une ville entière.
+
+Hayashi Nanaya leva simplement sa main légèrement : « Grande Muraille de Qi d'Épée. »
+
+D'innombrables Qi d'Épée dorés formèrent une barrière circulaire autour de Hayashi Nanaya.
+
+Les attaques des Six Sentiers de Douleur furent toutes bloquées.
+
+« Ce n'est pas du ninjutsu du tout… » Douleur Voie Deva se murmura à lui-même, ses yeux pleins de choc.
+
+« Bien sûr que ce n'est pas du ninjutsu ; c'est une Méthode de Cultivation Xianxia », expliqua Hayashi Nanaya calmement. « Maintenant, c'est à mon tour d'attaquer. »
+
+« Technique d'Épée de Shushan : Dix Mille Épées Retournent à l'Origine ! »
+
+D'innombrables Qi d'Épée dorés éclatèrent du corps de Hayashi Nanaya, frappant les Six Sentiers de Douleur comme une pluie de météores.
+
+Ces Qi d'Épée étaient extrêmement rapides, au point que même le Rinnegan ne pouvait pas les suivre complètement.
+
+« Shinra Tensei ! » Douleur Voie Deva libéra à nouveau une puissante force répulsive, tentant de bloquer ces Qi d'Épée.
+
+Cependant, ces Qi d'Épée semblaient ignorer les Lois de la physique, perçant directement à travers le champ de répulsion.
+
+Ils frappèrent avec précision les points vitaux des six Marionnettes de Douleur.
+
+« Boum ! Boum ! Boum ! »
+
+Les six Marionnettes de Douleur furent transpercées par les Qi d'Épée simultanément.
+
+Les mécanismes internes et les récepteurs de Chakra furent tous détruits, et elles perdirent complètement la capacité de fonctionner.
+
+La dernière chose que Nagato vit à travers les Marionnettes de Douleur fut le sourire calme et légèrement compatissant sur le visage de Hayashi Nanaya.
+
+« Non… Impossible… »
+
+Loin de là, dans les profondeurs de la haute tour, le corps de Nagato trembla violemment.
+
+Il regarda la scène de toutes les six Marionnettes de Douleur étant détruites avec incrédulité.
+
+C'était la première fois dans sa vie qu'il se sentait si impuissant.
+
+Même quand Hanzou avait tué Yahiko, il n'avait pas ressenti un tel désespoir complet.
+
+« Nagato ! » Konan regarda anxieusement Nagato, qui était si mince qu'il était presque juste peau et os. « Nous devons évacuer immédiatement ! »
+
+Cependant, à ce moment, une lumière blanche brilla, et Hayashi Nanaya était déjà apparu devant eux.
+
+« Pas besoin de paniquer », Hayashi Nanaya regarda Nagato et Konan calmement.
+
+« Si je voulais te tuer, je l'aurais déjà fait. »
+
+Nagato leva faiblement la tête, son Rinnegan fixant directement Hayashi Nanaya. « Qui… es-tu exactement ? »
+
+« Je l'ai déjà dit, je suis juste un Hokage qui veut protéger la paix. »
+
+Hayashi Nanaya répondit, ses yeux brillant d'une lumière sincère. « Nagato, je connais ton passé. »
+
+« Je connais la Douleur de perdre Yahiko, et je connais ton expérience d'avoir été trompé par Obito. »
+
+« Mais la vengeance et la destruction ne sont pas les moyens de résoudre les problèmes. »
+
+« La vraie paix nécessite la compréhension, la tolérance, et le dialogue. »
+
+Nagato resta silencieux pendant longtemps avant de finalement parler. « Même le Sage des Six Voies n'a pas pu atteindre la vraie paix. »
+
+« Pourquoi penses-tu pouvoir le faire ? »
+
+La question de Nagato plongea tout l'espace dans le silence.
+
+Dans ce silence, le regard de Hayashi Nanaya devint de plus en plus ferme.
+
+« Ce n'est pas seulement une question de foi et de force, Nagato. »
+
+Hayashi Nanaya fit un pas lent vers l'avant, ne reculant pas face à ces Rinnegan violets. « C'est aussi parce que j'ai vu des possibilités plus larges. »
+
+« La Douleur et la haine du Monde Ninja sont simplement limitées à la perspective de cette dimension. »
+
+« Au-delà de ce monde, il y a plus de chemins qui peuvent être choisis. »
+
+Le corps faible de Nagato trembla légèrement, et une lueur de confusion traversa son Rinnegan. « Au-delà… de ce monde ? »
+
+Konan se tenait vigilante devant Nagato.
+
+Elle était prête à se battre jusqu'à la mort à tout moment, même si au fond d'elle-même elle avait déjà compris.
+
+Cependant, le pouvoir de ce jeune Hokage devant eux avait déjà dépassé le cadre de ce qu'ils pouvaient résister.
+
+« Oui, au-delà des limitations de ce monde. » Hayashi Nanaya tendit sa main, et un amas de radiance dorée brillante émergea de sa paume.
+
+« L'essence du Monde Ninja est le Chakra, et au-delà du Chakra, il existe une énergie plus élevée appelée Pouvoir Spirituel. »
+
+« Quand tu peux toucher le Pouvoir Spirituel, les règles du monde entier changeront à cause de cela. »
+
+« Pouvoir Spirituel ? » Nagato se murmura à lui-même, même s'il possédait le légendaire Rinnegan.
+
+À ce moment, il était aussi confus qu'un débutant.
+
+Hayashi Nanaya sourit légèrement. « Laisse-moi te montrer à quoi ressemble la possibilité de la vraie puissance et de la paix coexistant. »
+
+Après avoir dit cela, Hayashi Nanaya leva doucement sa main, et une lumière dorée enveloppa le corps de Nagato.
+
+Nagato sentit seulement une énergie chaude et puissante se déverser soudainement dans son corps.
+
+Son corps, qui avait été extrêmement faible pendant des années à cause de l'utilisation du Rinnegan, commença à retrouver de la vitalité.
+
+« C'est… quel est ce pouvoir ? » Nagato regarda ses paumes avec surprise.
+
+Sa peau flétrie devint progressivement pulpeuse, et ses veines furent remplies d'un sens de pouvoir perdu depuis longtemps.
+
+« Juste un tout petit peu de la Technique de la Rosée Spirituelle aux Neuf Fleurs », dit Hayashi Nanaya indifféremment.
+
+« Cette Méthode de Cultivation Xianxia peut purifier les Impuretés dans le corps et réparer les méridiens endommagés. »
+
+« La raison pour laquelle ton corps est si faible est précisément parce que le Rinnegan a consommé trop de ta force vitale. »
+
+Konan regarda les changements en Nagato avec incrédulité. « Tu le… guéris ? »
+
+« C'est seulement une récupération temporaire », expliqua Hayashi Nanaya.
+
+« Pour résoudre complètement le problème, cela nécessite un conditionnement à long terme et l'apprentissage de la bonne Méthode de Cultivation. »
+
+Nagato se leva, sentant le pouvoir sans précédent dans son corps, ses yeux pleins d'émotions complexes.
+
+« Pourquoi m'aider ? Je suis ton ennemi. »
+
+Hayashi Nanaya secoua la tête. « Je ne t'ai jamais considéré comme un ennemi, Nagato. »
+
+« Tu es juste une personne pitoyable qui a été utilisée. »
+
+« Uchiha Obito a utilisé ta Douleur et tes idéaux pour te transformer en un outil pour son plan. »
+
+« Uchiha Obito… ce gars qui prétend être Uchiha Madara… » Les yeux de Nagato se rétrécirent.
+
+« Obito a ses propres raisons, mais le chemin qu'il a choisi est faux. »
+
+Hayashi Nanaya continua : « Le Tsukuyomi Infini semble pouvoir créer la paix. »
+
+« En réalité, il piège tout le monde dans un rêve. Ce n'est pas la vraie paix, mais une évasion. »
+
+Konan regarda Nagato, puis Hayashi Nanaya, et finit par réunir le courage de demander. « Alors, que penses-tu être la vraie paix ? »
+
+Hayashi Nanaya prit une profonde inspiration, son regard devenant distant. « La vraie paix est une relation de respect mutuel et de compréhension mutuelle entre les divers Villages Ninja. »
+
+## Chapitre 111 — Ce n'est que de l'Oppression par la Force
+
+« Ce n'est pas par l'oppression par la force, ni par la tromperie par le genjutsu, mais par une communication et une coopération sincères. »
+
+« Comment cela pourrait-il jamais être atteint ? » dit Nagato avec un sourire amer.
+
+« Les nations du Monde Ninja ont été en guerre pendant des siècles, se battant pour les ressources et le territoire. »
+
+« La haine est depuis longtemps profondément enracinée. »
+
+« C'est précisément parce qu'il est difficile d'y parvenir que nous, ceux avec suffisamment de pouvoir, sommes nécessaires pour guider le chemin. »
+
+Hayashi Nanaya dit avec emphase : « Nagato, tu possèdes le Rinnegan du Sage des Six Voies. »
+
+« Tu aurais dû être un guide pour le Monde Ninja, pas un exécuteur qui détruit le monde. »
+
+Nagato tomba dans une réflexion profonde, et les souvenirs du passé revinrent comme une marée.
+
+Il pensa aux rêves qu'il avait avec Yahiko et Konan dans leur jeunesse.
+
+Ce souhait pur et beau — créer un monde sans guerre.
+
+« Même si je voulais les guider, pourquoi les autres Villages Ninja écouteraient-ils ? » Nagato parla enfin, sa voix remplie de confusion.
+
+« Ils le feront. » Hayashi Nanaya dit avec confiance. « En fait, Konoha a déjà établi des relations amicales avec Sunagakure, le Village Caché de la Brume, et plusieurs autres Villages Ninja. »
+
+« Même le Village Caché des Nuages, qui a toujours eu des relations tendues avec Konoha, a envoyé des émissaires pour négocier. »
+
+« C'est seulement parce que ta force est écrasante, c'est pourquoi ils ont dû compromettre. »
+
+Konan analysa calmement : « Une fois que ton pouvoir s'affaiblit, la paix s'effondrera en un instant. »
+
+Hayashi Nanaya hocha la tête : « Tu as raison, Konan. »
+
+« La force est la garantie de la paix, mais ce n'est pas tout. »
+
+« La vraie paix durable nécessite un enchevêtrement profond des intérêts parmi les nations, rendant le coût de la guerre bien plus élevé que les gains de la paix. »
+
+« À la fin de la journée, la force détermine tout. » Nagato soupira.
+
+« La force détermine le droit de parler, mais elle ne détermine pas la justice. »
+
+Hayashi Nanaya le corrigea : « La raison pour laquelle je suis capable de persuader les nations d'accepter la paix… »
+
+« …n'est pas simplement parce que je peux les détruire. »
+
+« Mais parce que j'ai fourni un chemin qui est bénéfique pour tout le monde. »
+
+Nagato et Konan échangèrent un regard, une lueur d'hésitation dans leurs yeux.
+
+Les convictions qu'ils avaient maintenues pendant de nombreuses années semblaient être ébranlées en ce moment.
+
+« Comment as-tu l'intention de nous traiter ? » Nagato demanda enfin, son ton dénué de l'hostilité précédente.
+
+Hayashi Nanaya tendit sa main : « Rejoins-moi, Nagato. »
+
+« Avec tes capacités et ton expérience, tu peux faire une énorme contribution à la vraie paix. »
+
+« Le pouvoir du Rinnegan aurait dû être utilisé pour protéger le monde, pas le détruire. »
+
+« Rejoindre… Konoha ? » Nagato était quelque peu incrédule.
+
+Hayashi Nanaya secoua la tête : « Pas rejoindre Konoha, mais rejoindre l'Alliance de Paix'. »
+
+« C'est une organisation que je suis en train d'établir qui transcende les frontières nationales. »
+
+« Le but est de coordonner les relations entre les Villages Ninja et de traiter conjointement les menaces externes. »
+
+« Menaces externes ? » Konan captura avec perspicacité le terme.
+
+« Par exemple, le Clan Ōtsutsuki. » L'expression de Hayashi Nanaya devint sérieuse.
+
+« Ils sont la vraie menace pour le Monde Ninja. Kaguya n'était qu'un d'entre eux. »
+
+« À l'avenir, plus de membres du Clan Ōtsutsuki descendront sur Terre pour chercher le Fruit de Chakra. »
+
+Entendant cela, Nagato et Konan furent choqués une fois de plus.
+
+En ce qui concerne les légendes du Clan Ōtsutsuki, ils n'avaient vu que des bribes d'information dans d'anciens parchemins.
+
+Ils n'avaient jamais pensé que c'était une menace réelle et existante.
+
+Mais maintenant, Hayashi Nanaya l'avait énoncé directement pour eux.
+
+« Si c'est vraiment comme tu dis, alors le Monde Ninja a en effet besoin de s'unir. »
+
+Nagato réfléchit : « Mais comment puis-je être certain que ce que tu dis est vrai ? »
+
+Hayashi Nanaya sourit légèrement : « Je peux t'emmener rencontrer quelqu'un — Minato Namikaze. »
+
+« Le Quatrième Hokage ? N'est-il pas déjà… »
+
+« Oui, il est mort. »
+
+« Mais à travers une méthode spéciale, je lui ai permis de retourner temporairement dans ce monde. »
+
+« Il est actuellement à Konoha guidant la cultivation de Naruto. »
+
+Une lueur de choc apparut dans les yeux de Nagato : « Même la mort peut être inversée ? Ton pouvoir a déjà transcendé les Lois de la nature ! »
+
+« Ce n'est pas inverser la mort, simplement emprunter les Âmes des défunts. »
+
+Hayashi Nanaya expliqua modestement : « C'est simplement une technique de base dans le Monde de la Cultivation. »
+
+« Monde de la Cultivation… » Nagato répéta ce terme peu familier, ses yeux remplis de curiosité.
+
+« Reviens à Konoha avec moi, Nagato, Konan. »
+
+Hayashi Nanaya étendit à nouveau l'invitation : « Je te montrerai à quoi ressemble la vraie paix, et je t'enseignerai également des méthodes pour cultiver le pouvoir spirituel. »
+
+« Avec l'amélioration d'une Méthode de Cultivation Xianxia, le pouvoir du Rinnegan peut être utilisé encore plus efficacement. »
+
+Konan regarda Nagato, attendant sa décision.
+
+Peu importe ce que Nagato choisissait, elle le suivrait sans hésitation.
+
+Nagato resta silencieux pendant longtemps, et finit par hocher la tête : « Je suis disposé à venir avec toi. »
+
+« Mais pas parce que je crois complètement en tes paroles. »
+
+« Plutôt, c'est parce que je veux être témoin de mes propres yeux si la paix que tu as décrite existe vraiment. »
+
+« C'est suffisant. » Hayashi Nanaya révéla un sourire satisfait.
+
+« Le pouvoir de décision sera toujours dans tes propres mains ; je ne forcerai personne à accepter ma philosophie. »
+
+Tout comme ça, le leader de l'Organisation Akatsuki, Nagato, et sa partenaire la plus loyale, Konan, décidèrent de suivre Hayashi Nanaya à Konoha.
+
+Cependant, dans la haute tour du Village Caché de la Pluie, cette personne mystérieuse qui avait opéré sous l'identité de 'Tobi' — Uchiha Obito.
+
+Était témoin de tout cela à travers un moniteur.
+
+« Penser que même Nagato a été persuadé… »
+
+Une lumière dangereuse scintilla dans le Sharingan d'Obito. « Hayashi Nanaya, qui es-tu exactement ? »
+
+…
+
+Village de Konoha, Bureau du Hokage.
+
+« Hokage-sama, Nagato et Konan ont été installés dans l'hébergement spécialement préparé. »
+
+Shizune rapporta respectueusement : « Kakashi Hatake est actuellement en charge de leur supervision. »
+
+Hayashi Nanaya hocha la tête : « Souviens-toi, ce ne sont pas des prisonniers, mais des invités d'honneur. »
+
+« Personne ne doit les traiter avec irrespect. »
+
+« Compris, Hokage-sama. » Shizune répondit, puis hésita un moment. « Cependant, il y a déjà pas mal de rumeurs dans le Village… »
+
+« À propos de moi ramener le leader de l'Organisation Akatsuki ? » Hayashi Nanaya sourit légèrement.
+
+« C'est normal ; les gens ont besoin de temps pour s'adapter et accepter le changement. »
+
+« Surtout quand un ancien ennemi comme Nagato devient soudainement un ami, cela va inévitablement causer des soupçons. »
+
+Shizune hocha la tête : « Danzo Shimura semble particulièrement insatisfait de cela. »
+
+« Il a fait allusion à plusieurs reprises que les membres de la Racine devraient agir contre Nagato. »
+
+« Danzo, n'est-ce pas ? » Le regard de Hayashi Nanaya devint profond.
+
+« Il est éternellement incapable d'échapper à cette façon de penser 'ami ou ennemi'. »
+
+« Comment Hokage-sama a-t-il l'intention de gérer cela ? »
+
+« Ne t'inquiète pas pour lui pour l'instant. » Hayashi Nanaya dit indifféremment.
+
+« Danzo a ses utilisations ; sa loyauté envers Konoha est au-delà de tout doute, c'est juste que ses méthodes sont trop radicales. »
+
+Cependant, juste après que le Hokage eut parlé de l'affaire en cours.
+
+Il vit un Ninja Anbu apparaître par la fenêtre : « Hokage-sama, renseignement urgent ! »
+
+« Parle. » L'expression de Hayashi Nanaya resta inchangée, mais ses yeux étaient devenus tranchants.
+
+« Uchiha Itachi et Hoshigaki Kisame sont déjà entrés dans le Pays du Feu et semblent être en chemin vers Konoha ! »
+
+Entendant cela, les coins de la bouche de Hayashi Nanaya se courbèrent légèrement : « Sont-ils enfin arrivés… »
+
+*Fin des chapitres 107 à 111.*
+
+*À suivre — Les chapitres 112 à 116 seront prêts sur demande.*
