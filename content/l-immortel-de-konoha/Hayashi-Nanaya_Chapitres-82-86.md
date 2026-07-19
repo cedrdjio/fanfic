@@ -3456,3 +3456,2069 @@ La silhouette resta silencieuse un moment, finissant par hocher doucement la tê
 « Très bien, » dit Obito avec satisfaction. « Venez avec moi ; les autres membres nous attendent. »
 
 Les deux silhouettes disparurent lentement dans les ombres, se dirigeant vers la base secrète de l'Organisation Akatsuki.
+# L'Immortel de Konoha
+### Traduction française — Chapitres 92 à 96
+
+## Chapitre 92 — L'Attitude de chacun envers le Hokage
+
+« J'espère que tout pourra continuer à se dérouler de manière ordonnée. »
+
+« Comme vous l'ordonnez, Mizukage-sama. »
+
+…
+
+Village Caché des Nuages, Bureau du Raikage.
+
+« Maudit soit ! » Le Quatrième Raikage, A, frappa son poing sur la table, ses muscles tremblants de rage.
+
+« Le Hayashi Nanaya de Konoha est vraiment aussi puissant ! »
+
+« Calmez-vous, Grand Frère. » Killer Bee s'appuya contre le mur et dit d'un ton nonchalant.
+
+« Hayashi Nanaya est en effet très fort, mais nous ne sommes pas mal non plus, yeah~ »
+
+« Bee ! » A fusilla son jeune frère du regard. « Ce n'est pas le moment pour des plaisanteries ! »
+
+« Hayashi Nanaya a vaincu Uchiha Itachi et Hoshigaki Kisame. Savez-vous ce que cela signifie ? »
+
+« Cela signifie qu'il est fort ? » Killer Bee haussa un sourcil.
+
+« Cela signifie que notre évaluation précédente de Konoha était complètement fausse ! » dit A fort.
+
+« La force de Hayashi Nanaya dépasse de loin notre imagination. »
+
+« S'il dirige Konoha pour lancer une attaque contre le Village Caché des Nuages, les conséquences seraient inimaginables ! »
+
+« Alors que devrions-nous faire ? » demanda Killer Bee, inhabituellement sérieux.
+
+A prit une profonde inspiration, se forçant à se calmer. « Changez de stratégie. Nous ne pouvons pas rester ennemis avec Konoha. »
+
+« Cela ne ressemble pas à votre style, Grand Frère. » Killer Bee haussa un sourcil.
+
+« La situation nous force la main, Bee. » A marcha vers la fenêtre et regarda la mer de nuages au loin.
+
+« Avec Hayashi Nanaya comme Hokage, être ennemis avec Konoha n'apportera que le désastre. »
+
+« Nous devons trouver une opportunité de nous réconcilier avec Konoha. »
+
+…
+
+De l'autre côté, dans le village de Konoha, la nouvelle de la victoire de Hayashi Nanaya sur Uchiha Itachi et Hoshigaki Kisame causa une sensation.
+
+« Le Cinquième Hokage est vraiment trop fort ! »
+
+« On dit qu'il a vaincu Uchiha Itachi et Hoshigaki Kisame en quelques mouvements à peine. Ces deux-là sont des Ninjas voyous de rang S ! »
+
+« Ne savez-vous pas ? Le Cinquième Hokage possède également un dōjutsu appelé les Yeux Dorés de Vérité, qui peut directement briser le genjutsu du Mangekyō Sharingan ! »
+
+« C'est incroyable ! Avec Seigneur Hayashi Nanaya ici, Konoha deviendra sûrement de plus en plus fort ! »
+
+Les discussions des villageois étaient infinies, et leur admiration pour Hayashi Nanaya était évidente.
+
+…
+
+À l'intérieur du Bureau du Hokage, Utatane Koharu et Homura Mitokado se tenaient devant Hayashi Nanaya avec des expressions complexes.
+
+« Seigneur Nanaya, nous nous excusons pour notre attitude précédente. »
+
+Utatane Koharu baissa la tête, son ton teinté d'une touche de culpabilité. « Nous avons mis à tort en doute votre capacité. »
+
+« Oui, Hokage-sama. » Homura Mitokado hocha également la tête.
+
+« Votre exploit de vaincre Uchiha Itachi et Hoshigaki Kisame a déjà prouvé votre force. »
+
+« C'est notre bonne fortune d'avoir un leader comme vous à Konoha. »
+
+Hayashi Nanaya ne parla pas, mais regarda plutôt les deux calmement.
+
+« Konoha est ma maison, et protéger Konoha est ma responsabilité. »
+
+Utatane Koharu et Homura Mitokado échangèrent un regard, leurs yeux pleins d'admiration et de révérence.
+
+Si jeune, possédant déjà une force si puissante et un esprit mature.
+
+Hayashi Nanaya est sans aucun doute l'un des Hokages les plus remarquables de l'histoire de Konoha.
+
+Et pourtant, son attitude est si bonne en ce moment.
+
+C'est leur honneur pour Konoha d'avoir un tel Hokage.
+
+« Au fait, il y a encore une chose qui doit vous être rapportée, » dit Homura Mitokado.
+
+« Iwagakure, le Village Caché de la Brume, et le Village Caché des Nuages ont déjà retiré leurs troupes de la frontière. »
+
+« Ils semblaient à l'origine avoir l'intention d'envahir pendant que Konoha était faible. »
+
+« Mais après que la nouvelle de votre victoire sur Uchiha Itachi et Hoshigaki Kisame se soit répandue, ils ont rapidement changé de stratégie. »
+
+Utatane Koharu ajouta. « Il semble que la réputation de Seigneur Hayashi Nanaya ait déjà ébranlé tout le Monde Ninja. »
+
+Hayashi Nanaya hocha la tête légèrement, bien qu'il n'y eût pas la moindre trace de fierté dans son cœur.
+
+Le vrai défi est encore à venir.
+
+La menace de l'Organisation Akatsuki existe toujours, et il y a même des ennemis plus inconnus qui convoitent secrètement le pouvoir de Konoha.
+
+« Renforcez les patrouilles frontalières, et restez vigilants, » ordonna Hayashi Nanaya.
+
+« En même temps, préparez-vous à répondre aux lettres diplomatiques des divers pays. »
+
+« Nous avons besoin d'un environnement extérieur stable pour restaurer la force de Konoha. »
+
+« Comme vous l'ordonnez, Hokage-sama, » répondirent les deux Anciens d'une seule voix, puis sortirent du bureau.
+
+…
+
+Dans une grotte cachée.
+
+Uchiha Obito, portant un masque spiralé orange, se tenait tranquillement sur un énorme rocher.
+
+À côté de lui se tenait une silhouette floue ; on ne pouvait voir qu'une silhouette, mais pas le visage clairement.
+
+« Uchiha Itachi et Hoshigaki Kisame ont été vaincus, » dit Obito calmement, bien que sa voix portât une touche de choc imperceptible.
+
+« Vaincus par les mains du nouveau Hokage de Konoha, Hayashi Nanaya. »
+
+La silhouette à côté de lui ne répondit pas, se tenant simplement là tranquillement.
+
+« Hayashi Nanaya… » Obito dit ce nom, son ton portant une touche d'émotion complexe.
+
+« Il est déjà devenu le Cinquième Hokage à seulement dix-sept ans. »
+
+« Sa force est si grande que même le Mangekyō Sharingan d'Uchiha Itachi ne peut rien faire contre lui. »
+
+« Il possède un dōjutsu appelé les Yeux Dorés de Vérité, qui peut directement briser le genjutsu Tsukuyomi d'Uchiha Itachi. »
+
+Obito continua. « Et il y a une force puissante appelée la Force de Suppression des Huit Désolations, qui pourrait supprimer simultanément Uchiha Itachi et Hoshigaki Kisame. »
+
+Obito tourna la tête pour regarder la silhouette à côté de lui. « Pensez-vous que notre plan doit être ajusté ? »
+
+La silhouette ne répondit toujours pas, hochant simplement doucement la tête.
+
+« Je le pense aussi. »
+
+« L'apparition de Hayashi Nanaya est une variable que nous n'avions pas anticipée. »
+
+« Sa force a déjà dépassé le cadre d'un Ninja ordinaire, et pourrait même menacer notre plan. »
+
+Obito resta silencieux un moment, puis dit. « Cependant, chaque ennemi puissant peut aussi être un allié potentiel. »
+
+La silhouette sembla réagir à cette phrase, tournant légèrement la tête.
+
+« Oui, je veux vous présenter aux autres membres de l'Organisation Akatsuki. »
+
+Obito hocha la tête légèrement. « Bien que vous ne soyez pas disposé à révéler votre identité, votre force est suffisante pour les convaincre. »
+
+La silhouette resta silencieuse un moment, finissant par hocher doucement la tête.
+
+« Très bien, » dit Obito avec satisfaction. « Venez avec moi ; les autres membres nous attendent. »
+
+Les deux silhouettes disparurent lentement dans les ombres, se dirigeant vers la base secrète de l'Organisation Akatsuki.
+
+## Chapitre 93 — Vous apporter un nouveau partenaire
+
+À l'intérieur de la salle de réunion de l'Organisation Akatsuki.
+
+Plusieurs fantômes projetés s'étaient déjà rassemblés, attendant l'arrivée d'Obito.
+
+« Oh ? Est-ce que Tobi a encore quelque chose d'important à annoncer ? » dit la moitié noire de Zetsu avec sarcasme.
+
+« Tais-toi, Zetsu, » dit Kakuzu froidement.
+
+« Depuis qu'Uchiha Itachi et Hoshigaki Kisame ont été vaincus par les mains du nouveau Hokage de Konoha, nous devons réévaluer la situation. »
+
+« Le nouveau Hokage de Konoha est en effet très fort, hmm ! »
+
+Deidara retroussa les lèvres. « Être capable de vaincre Uchiha Itachi, ce n'est pas quelque chose qu'une personne ordinaire peut faire, hmm ! »
+
+« Hayashi Nanaya… » La projection de Pain parla lentement.
+
+« Le Cinquième Hokage de Konoha, ayant une force si puissante à seulement dix-sept ans, vaut en effet notre vigilance. »
+
+« Ce n'est qu'un morveux. »
+
+Hidan dit avec mépris. « Devrais-je aller le rencontrer ? Et offrir son sang à Seigneur Jashin. »
+
+« N'agissez pas précipitamment, Hidan. »
+
+« La force de Hayashi Nanaya dépasse de loin votre imagination. »
+
+Pendant qu'ils communiquaient, Obito et cette silhouette floue entrèrent dans la salle de réunion.
+
+« Désolé de vous avoir fait attendre. »
+
+La voix d'Obito était légère et joyeuse, pas du tout comme son habituel moi sombre. « J'ai apporté à tout le monde un nouveau partenaire. »
+
+Le regard de tout le monde se fixa sur la silhouette floue à côté d'Obito.
+
+« Qui est-ce ? » demanda Pain, sa voix teintée d'une touche de méfiance.
+
+« Un individu puissant avec des capacités spéciales, » présenta Obito.
+
+« Son pouvoir dépasse même le mien, et il peut nous aider à gérer le Cinquième Hokage de Konoha, Hayashi Nanaya. »
+
+« Hmph, je n'y crois pas, » dit Hidan avec mépris. « À moins qu'il ne prouve sa force. »
+
+« Ouais, un ! » Deidara fit écho. « Qui sait s'il est vraiment si fort, un ! »
+
+La silhouette resta silencieuse tout au long. Cependant, en entendant le scepticisme de ceux qui l'entouraient, une aura puissante rayonna directement de son corps.
+
+Alors que l'individu poussait son pouvoir à la limite, tout le monde présent ressentit une trace de pression.
+
+Que quelqu'un qu'Obito avait amené si désinvoltement puisse posséder un pouvoir aussi formidable était vraiment au-delà de l'imagination.
+
+Pourtant, au moment où l'individu afficha son pouvoir, ils furent complètement subjugués.
+
+« Sa force est incontestable, » dit Obito calmement. « Faites-moi confiance, avec lui nous rejoignant, notre plan se déroulera beaucoup plus facilement. »
+
+Pain resta silencieux un moment, puis hocha la tête. « Dans ce cas, nous vous souhaitons la bienvenue dans l'Organisation Akatsuki. »
+
+La silhouette hocha la tête légèrement, indiquant son acceptation.
+
+« Maintenant, discutons de la nouvelle stratégie pour Konoha, » dit Obito, changeant de sujet. « L'apparition de Hayashi Nanaya a sans aucun doute perturbé nos plans. »
+
+« Devrions-nous reporter le plan pour capturer le Neuf-Queues ? » demanda Konan.
+
+« Non, au contraire, nous devrions accélérer notre rythme, » dit Obito. « Avant que Hayashi Nanaya ne maîtrise pleinement le pouvoir de Konoha, nous devons agir aussi rapidement que possible. »
+
+Pain hocha la tête. « Je suis d'accord, mais nous devons formuler un plan plus approfondi pour éviter une confrontation directe avec Hayashi Nanaya. »
+
+« Notre nouveau partenaire et moi serons responsables de la formulation du plan, » dit Obito. « Le reste d'entre vous continuera à exécuter vos missions originales. »
+
+…
+
+Après la fin de la réunion, Obito et cette silhouette floue quittèrent la salle de réunion et vinrent dans une pièce isolée.
+
+« Vous avez très bien performé, » dit Obito. « Ils ont complètement accepté votre existence. »
+
+La silhouette hocha la tête légèrement, restant silencieuse comme avant.
+
+« Ensuite, nous devons aller un peu plus loin. » La voix d'Obito devint basse. « À travers vous, nous pouvons apprendre plus d'informations sur Hayashi Nanaya. »
+
+La silhouette hocha la tête à nouveau, indiquant son accord.
+
+Obito sourit avec satisfaction. « Très bien, j'ai hâte de coopérer avec vous. »
+
+…
+
+Hayashi Nanaya gérait les affaires courantes à l'intérieur du Bureau du Hokage tout en suivant simultanément chaque mouvement de l'Organisation Akatsuki à travers son Clone.
+
+« Hokage-sama, ce sont les derniers documents diplomatiques qui nécessitent votre examen. » Shizune plaça respectueusement une pile de documents devant Hayashi Nanaya.
+
+Hayashi Nanaya hocha la tête légèrement. « Merci, Shizune. »
+
+Shizune hésita un moment, puis demanda. « Hokage-sama, vous avez l'air un peu épuisé récemment. Est-ce trop de travail ? »
+
+Hayashi Nanaya secoua la tête doucement. « Je vais bien, il y a juste certaines choses qui doivent être considérées. »
+
+Shizune hocha la tête et ne demanda pas plus.
+
+Hayashi Nanaya regarda les documents dans sa main, mais son cœur pensait à la situation de son Clone à l'intérieur de l'Organisation Akatsuki.
+
+C'était un mouvement risqué, mais aussi le moyen le plus direct de comprendre les plans de l'Organisation Akatsuki.
+
+« Organisation Akatsuki… » Hayashi Nanaya se murmura à lui-même. « J'ai déjà commencé à apprendre vos plans. »
+
+## Chapitre 94 — Ne faites pas les mystérieux
+
+…
+
+À l'intérieur de la base secrète de l'Organisation Akatsuki, l'atmosphère était lourde et oppressante.
+
+Dans la grotte sombre, plusieurs silhouettes floues formaient un demi-cercle. Chaque personne rayonnait d'une aura différente.
+
+Certains étaient violents, d'autres froids. Mais cette grotte était directement entourée d'une aura froide.
+
+Tout le monde rayonnait d'une aura puissante. Ceux qui se tenaient derrière les quelques-uns n'osaient pas parler, attendant seulement leurs instructions.
+
+De ce côté, Obito venait de finir de présenter le Clone de Hayashi Nanaya. L'atmosphère sur les lieux devint très subtile.
+
+L'aura rayonnée par le Clone fit que tout le monde présent ressentit de la pression, mais certains membres harboraient encore des doutes. Qu'est-ce que cela était censé être ?
+
+Quant à l'intimidation, même les gens ordinaires pouvaient le faire, et cela pouvait être encore plus formidable que la pression venant de lui.
+
+Maintenant, il voulait rejoindre l'Organisation Akatsuki sans même montrer son visage ? À quoi pensait Obito, au juste ?
+
+Hidan plissa les yeux, jaugeant Obito et le nouveau venu qui était soudainement entré. Il n'avait jamais aimé les nouveaux venus, surtout ces gars qui ne voulaient pas montrer leurs vrais visages et agissaient de manière mystérieuse.
+
+De telles personnes cachaient souvent trop de secrets, ce qui rendait mal à l'aise. De plus, la force de l'autre partie était encore un mystère. Il n'était généralement pas bon de le laisser entrer aveuglément.
+
+« Hmph, c'est tout ? » Hidan retroussa les lèvres avec mépris, ses doigts caressant l'amulette de culte suspendue autour de son cou. « Pensez-vous que vous pouvez nous faire soumettre juste en libérant un peu d'aura ? »
+
+« Seigneur Jashin ne sera pas trompé par de tels petits tours. » Quoi qu'il en soit, ce jeune homme qui leur donnait une très mauvaise impression devrait être chassé de l'Organisation Akatsuki à la première occasion.
+
+Il ne devait absolument pas être autorisé à entrer. Sinon, si quelque chose se produisait, ce serait complètement incontrôlable.
+
+Entendant les paroles de Hidan, Deidara fit également écho. « Ouais, je ne crois pas que l'on puisse juger la force d'une personne juste par un peu d'aura. »
+
+« Un ! Si vous voulez que je vous reconnaisse, au moins vous devez montrer votre art. » « Le vrai art est une explosion, c'est la beauté d'un éclat momentané ! »
+
+Comme il parlait, la bouche dans la main de Deidara avait déjà commencé à mâcher l'argile explosive, prête pour le combat à tout moment.
+
+Bien que cette personne mystérieuse eût une aura puissante, il pourrait ne pas être capable de résister à son art explosif. De plus, qui savait si cette personne représentait un danger ?
+
+S'il y avait vraiment un danger, il pourrait rapidement éliminer l'adversaire pendant le combat sans se salir les mains. C'était une stratégie parfaite.
+
+Comme il parlait, la vitesse à laquelle il mâchait le bubble-gum augmenta. Il voulait juste pouvoir exposer le but de l'autre partie en attaquant.
+
+La personne derrière Obito resta silencieuse tout au long. Même maintenant, étant mise en question par tout le monde, il n'y eut aucune réaction.
+
+Obito vit que la situation entre les deux camps était un peu déraillante et avait l'intention de prendre la parole pour l'arrêter.
+
+Mais Hidan, voyant l'action d'Obito, devint encore plus en colère. Il leva la main pour rejeter Obito qui voulait intervenir. Son insatisfaction intérieure grandit de plus en plus forte.
+
+Dans l'Organisation Akatsuki, chacun avait ses propres caractéristiques et expertises, mais ils se respectaient tous mutuellement.
+
+Pourtant cette personne mystérieuse n'offrait même pas la réponse la plus basique ; c'était simplement du mépris pour eux.
+
+Ce qui était encore plus critique, c'est qu'ils ne savaient même pas quel genre de force l'autre partie possédait. Comme ça, il voulait rejoindre l'Organisation Akatsuki ? Dans ses rêves !
+
+« Hé, arrêtez de faire les mystérieux ! »
+
+Hidan saisit fermement sa Faucheuse à Triple-Lame ; qui savait si cette Aura de tout à l'heure n'était qu'une façade ?
+
+Si ce n'était pas une façade,
+
+cela pourrait causer des ennuis inutiles pour lui une fois le combat commencé.
+
+Tenir son arme fermement signifiait qu'il pouvait au moins contre-attaquer immédiatement.
+
+Par conséquent, Hidan regarda provocante.
+
+« Voulez-vous vous battre ? Laissez-moi voir si votre sang est digne d'être offert à Seigneur Jashin ! »
+
+Il ne pouvait pas attendre pour voir la peau de cette personne mystérieuse être tranchée par sa Faucheuse à Triple-Lame, avec du sang qui s'écoulait.
+
+Juste penser à une telle scène le rendait incroyablement excité.
+
+Voyant que la situation pourrait dégénérer, Obito était sur le point d'intervenir, mais la silhouette à côté de lui leva doucement la main pour l'arrêter.
+
+Cette action surprit Obito.
+
+N'avait-il pas dit qu'il ne voulait pas interagir trop avec ces gens ?
+
+Pourquoi l'arrêtait-il soudainement ?
+
+Pourrait-il être qu'il voulait leur donner une leçon lui-même ?
+
+Pensant à cette possibilité, il ajusta son expression et choisit de continuer à observer.
+
+Pour voir comment la personne derrière lui prévoyait de résoudre cette crise.
+
+« Vous voulez essayer ? »
+
+C'était la première fois qu'il parlait.
+
+Entendant la personne qu'ils avaient provoquée enfin parler,
+
+l'atmosphère de tout l'espace changea instantanément.
+
+Ils ne s'attendaient pas à ce que l'autre partie osât parler à ce moment.
+
+C'était complètement en dehors de leurs plans.
+
+Ils avaient pensé qu'il resterait silencieux tout le temps.
+
+Mais comment la situation actuelle devrait-elle être résolue ?
+
+Kakuzu jeta quelques regards supplémentaires à ce nouveau membre.
+
+Des pensées tourbillonnaient sans fin dans son esprit.
+
+Intéressant, l'Aura de cette personne est en effet inhabituelle.
+
+Cet idiot de Hidan va probablement souffrir.
+
+Au sein de l'Organisation Akatsuki, sa prémonition de danger pouvait être qualifiée de superbe.
+
+Ces gens provoquaient l'autre partie sans savoir ce qui était bon pour eux.
+
+Ils allaient probablement souffrir ensuite.
+
+Cependant, il était également très chanceux de ne pas être intervenu à cause de quelques mots de Hidan tout à l'heure.
+
+Sinon, il aurait peut-être été celui qui souffrirait cette fois aussi.
+
+Après tout, au moment où l'autre partie parlait, chaque cellule de son corps l'avertissait.
+
+Cette personne mystérieuse n'était définitivement pas aussi simple qu'elle en avait l'air en surface.
+
+Mais la personne qui provoquait l'autre partie ne ressentait rien.
+
+Même en entendant l'autre partie parler,
+
+il devint excité.
+
+Hidan rit en entendant cela : « Hahaha ! Enfin disposé à parler ? »
+
+« Allez, laissez-moi voir quelles compétences vous avez ! »
+
+« Seigneur Jashin aimera définitivement votre sang ! »
+
+Il n'y avait pas beaucoup d'adversaires qui pouvaient le faire donner le meilleur de lui-même.
+
+Si ce nouveau venu pouvait lui apporter de la Douleur, ce serait encore mieux.
+
+C'était un type de jouissance, une façon de communiquer avec Seigneur Jashin.
+
+Si ce n'était pas le cas,
+
+alors cette personne pouvait simplement mourir ici.
+
+Il croyait que ni Seigneur Jashin ni les gens de l'Organisation Akatsuki ne s'opposeraient à voir cela se produire.
+
+Après avoir dit cela, il brandit sa Faucheuse à Triple-Lame et chargea directement vers le Clone de Hayashi Nanaya.
+
+La Faucheuse à Triple-Lame traça un arc étrange dans l'air, se dirigeant droit vers la gorge du Clone.
+
+Ses mouvements étaient extrêmement rapides.
+
+C'était une technique affûtée à travers d'innombrables batailles réelles.
+
+Peu de gens pouvaient s'en sortir indemnes de sa première frappe.
+
+Mais quand il vit l'autre partie sans aucune expression tout le temps,
+
+le regard de Hidan portait une certaine peur.
+
+Il semblait avoir réalisé que la force de cette personne pouvait complètement le supprimer.
+
+Les actions suivantes validèrent complètement sa supposition.
+
+Au moment où la Faucheuse à Triple-Lame était sur le point de toucher le Clone,
+
+tout le monde entendit seulement un son clair de « clang ».
+
+Le son clair du métal entrant en collision résonna.
+
+Et puis ils virent la Faucheuse à Triple-Lame de Hidan simplement suspendue en l'air,
+
+incapable d'avancer du tout.
+
+Mais le cœur de Hidan était encore plus choqué.
+
+Les autres ne pouvaient pas le voir,
+
+mais il pouvait le voir clairement.
+
+Juste au moment où il était sur le point de porter son attaque,
+
+la lame dans sa main était clairement bloquée par une force invisible.
+
+« Qu'est-ce… qu'est-ce que c'est ? » Hidan écarquilla les yeux, regardant la scène devant lui avec incrédulité.
+
+Depuis qu'il était venu à l'Organisation Akatsuki,
+
+jamais personne n'avait pu contrôler directement sa lame sans lancer aucune attaque.
+
+La situation devant lui était trop choquante.
+
+Elle dépassait complètement ses attentes.
+
+Voyant la confusion de Hidan, le Clone de Hayashi Nanaya ne dégaina pas son épée, mais leva simplement doucement la main,
+
+et un Qi d'Épée invisible bloqua l'attaque de Hidan.
+
+Voyant l'attaque de l'autre partie,
+
+Hidan ouvrit grand les yeux de surprise.
+
+Il n'avait jamais rencontré une telle situation auparavant.
+
+Avant de rencontrer l'autre partie,
+
+sa Faucheuse à Triple-Lame pouvait presque trancher n'importe quel matériau, mais maintenant elle était bloquée par un Qi d'Épée invisible.
+
+« Technique d'Épée de Shushan : Arc-en-ciel de Qi d'Épée. »
+
+Le Clone dit doucement, sa voix aussi calme que s'il énonçait la chose la plus ordinaire.
+
+Puis, comme s'il ne voyait pas le regard craintif de l'autre partie,
+
+il agita la main, sans aucun sceau de mains, sans aucune fluctuation de Chakra.
+
+Du point de vue de l'autre partie, l'attaque n'avait même pas été complétée.
+
+Mais même ainsi,
+
+ce n'était qu'en un instant.
+
+Des dizaines de Qi d'Épée visibles apparurent de nulle part, frappant vers Hidan comme l'éclair.
+
+Pain observa tranquillement tout cela, secrètement surpris dans son cœur.
+
+Ce genre d'escrime… n'était pas composé de Chakra, mais d'un système de pouvoir complètement inconnu.
+
+Il avait pensé avoir une compréhension approfondie des divers pouvoirs dans le Monde Ninja,
+
+mais après avoir vu ce Qi d'Épée,
+
+il réalisa qu'il y avait plus de Qi d'Épée qu'il ne pouvait tout simplement pas comprendre.
+
+Il ne pouvait même pas juger quel genre d'attaque l'autre partie utilisait.
+
+Il n'avait pas eu de prélude à son attaque tout à l'heure, n'est-ce pas ?
+
+Il venait d'agiter la main,
+
+et il avait déjà lancé l'attaque.
+
+Surtout puisque l'attaque qu'il avait lancée était quelque chose qu'il voyait pour la première fois.
+
+Hidan fut encore plus surpris que ceux qui l'entouraient.
+
+Bien qu'il possédât un corps immortel,
+
+mais face à de si denses attaques de Qi d'Épée, sa vitesse de réaction était encore un battement trop lente.
+
+En même temps, il essaya d'utiliser sa Faucheuse à Triple-Lame pour se défendre.
+
+Mais la vitesse du Qi d'Épée était tout simplement trop rapide, et la puissance de chaque Qi d'Épée dépassait ses attentes.
+
+Il n'avait aucun moyen de contre-attaquer du tout.
+
+« Maudit soit ! »
+
+Hidan bloqua à peine quelques Qi d'Épée,
+
+mais la plupart des Qi d'Épée traversèrent tout de même son corps, le clouant au mur.
+
+Du sang coula lentement le long du mur.
+
+Malgré ses blessures graves, l'expression de Hidan alors qu'il regardait la personne mystérieuse révéla un sourire tordu.
+
+« Hahaha ! Ça fait mal ! Ce genre de Douleur est vraiment merveilleux ! Seigneur Jashin appréciera définitivement ce que je ressens ! »
+
+Hidan tordit son corps, profitant du plaisir apporté par la Douleur.
+
+« Mais, pensez-vous que vous pouvez me vaincre comme ça ? »
+
+« J'ai un corps immortel ! Tant que je complète mon rituel, vous goûterez aussi à la même Douleur ! »
+
+Konan vit cette scène, une trace de surprise flashant dans ses yeux : « Cette personne… est en fait capable de blesser Hidan si facilement. »
+
+Elle connaissait très bien la force de Hidan.
+
+Auparavant, Hidan apparaissait souvent imprudent et fou, mais sa capacité de combat était superbe.
+
+Couplé à la caractéristique d'un corps immortel, peu de gens pouvaient vraiment le vaincre.
+
+Mais maintenant il était vaincu par l'autre partie d'un simple geste de la main ?
+
+Cela semblait un peu mystérieux.
+
+## Chapitre 95 — L'Immortalité n'est pas invulnérable
+
+« Je sais que vous ne serez pas vaincu si facilement. »
+
+Le Clone de Hayashi Nanaya s'avança, le regarda, et dit : « Votre immortalité est en effet impressionnante. »
+
+« Mais face à un pouvoir absolu, toute défense est futile. »
+
+Par la suite, le Clone de Hayashi Nanaya commença à tisser des sceaux de mains.
+
+Mais contrairement aux sceaux de mains communs d'un Ninja.
+
+Ses gestes étaient plus particuliers, comme s'ils provenaient d'un système entièrement différent.
+
+« Technique d'Épée de Shushan : Filet du Ciel. »
+
+Alors que le Clone de Hayashi Nanaya eut terminé les sceaux de mains.
+
+D'innombrables petits brins de Qi d'Épée s'entrelacèrent dans l'air, formant un immense filet qui piégea fermement Hidan.
+
+Sentant ses mouvements contraints.
+
+Hidan commença à lutter rapidement.
+
+Cependant, peu importe comment il luttait, il ne pouvait pas se libérer de ce filet tissé de Qi d'Épée.
+
+De plus, chaque nœud du filet de Qi d'Épée émettait une faible lueur, ayant l'air assez particulier.
+
+Voyant cette scène, Deidara ne put s'empêcher de cliquer de la langue : « Quel genre de Ninjutsu est-ce ? »
+
+« Être capable de tisser un tel filet à partir de rien ? Cette technique… c'est peut-être aussi une forme d'art ! »
+
+L'explosion est la plus belle forme d'art.
+
+Mais maintenant, voyant l'attaque de l'adversaire, il dut admettre.
+
+Le filet de Qi d'Épée possédait en effet une esthétique spéciale.
+
+Il se demanda si cette personne pouvait lui apprendre exactement quelles actions étaient entreprises pour apporter une telle beauté à ce point ?
+
+Si autre chose était nécessaire.
+
+Il n'était pas incapable de le faire.
+
+Mais comparé à lui.
+
+Hidan était encore plus terrifié.
+
+« Quoi ? Quel genre de Ninjutsu est-ce ? »
+
+Pour la première fois, Hidan révéla un regard de terreur.
+
+Il n'avait jamais vu une technique d'épée aussi bizarre, et il n'avait même pas eu une chance de se libérer.
+
+Son immortalité l'avait fait ne craindre presque aucune attaque.
+
+Mais à ce moment, il ressentit un sentiment d'impuissance sans précédent.
+
+« Ce n'est pas du Ninjutsu. » Le Clone de Hayashi Nanaya marcha lentement vers Hidan.
+
+« C'est la Technique d'Épée de Shushan, un système de pouvoir qui transcende le Chakra. »
+
+« Transcende le Chakra ? » répéta Hidan avec surprise, ses yeux remplis d'incrédulité.
+
+« Existe-t-il vraiment un pouvoir dans ce monde qui transcende le Chakra ? »
+
+« Bien sûr. »
+
+« Le Chakra n'est qu'un des systèmes de pouvoir dans ce monde. »
+
+« La Technique d'Épée de Shushan provient d'un endroit que vous ne connaissez pas, où le système de pouvoir est complètement différent. »
+
+Les autres membres de l'Organisation Akatsuki présents furent choqués par cette scène.
+
+Surtout Deidara, qui avait toujours cru que son art explosif était le moyen d'attaque le plus puissant.
+
+Mais la technique d'épée devant lui lui fit ressentir une trace de peur.
+
+« Intéressant, hmm ! » Deidara ne put s'empêcher de s'exclamer.
+
+« Ce genre de technique d'épée est une toute nouvelle forme d'art. »
+
+« Bien qu'elle manque de l'impact d'une explosion, cette précision et cette esthétique sont en effet très spéciales, hmm ! »
+
+Kakuzu observa froidement depuis le côté, calculant dans son cœur.
+
+« Si cette personne a vraiment maîtrisé un système de pouvoir qui transcende le Chakra. »
+
+« Alors sa valeur est probablement bien au-delà de notre imagination. »
+
+« Les plans de l'Organisation Akatsuki pourraient avoir besoin d'être réévalués. »
+
+Sasori observait également silencieusement le Clone de Hayashi Nanaya depuis le côté.
+
+La perspicacité unique d'un maître de marionnettes lui permit de découvrir quelques indices : « Les mouvements de cette personne… sont trop parfaits, avec presque aucune action redondante. »
+
+« Une telle précision, même ma marionnette humaine la plus sophistiquée ne peut pas l'atteindre. »
+
+Être capable de soumettre Hidan si facilement, la force de cette personne mystérieuse ne peut définitivement pas être sous-estimée.
+
+Plus important encore, si un système de pouvoir qui transcende le Chakra existe vraiment.
+
+Alors cela aura un impact profond sur leurs plans.
+
+Peu importe pourquoi une telle personne a rejoint l'Organisation Akatsuki.
+
+L'aide qu'elle leur apporterait serait sans précédent.
+
+« Assez. » Pain parla enfin, sa voix portant une trace d'autorité.
+
+« Hidan a déjà été vaincu, et nous avons witnessé votre force. »
+
+Le Clone de Hayashi Nanaya hocha la tête légèrement et agita la main pour dissiper le filet d'épée qui piégeait Hidan.
+
+Hidan tomba du mur, les blessures sur son corps commençant déjà à guérir automatiquement, pourtant son visage portait un sourire bizarre.
+
+« La force de ce nouveau compagnon est en effet au-delà de l'imagination. »
+
+Pain regarda le Clone de Hayashi Nanaya, une lueur de curiosité dans ses yeux : « Cependant, je suis un peu curieux, votre technique d'épée est-elle vraiment comme vous le dites, transcendant le système de Chakra ? »
+
+« Si vous voulez en faire l'expérience vous-même, cela ne me dérange pas. »
+
+répondit Hayashi Nanaya.
+
+Cependant, après qu'il eut fini de parler, l'atmosphère sur les lieux devint instantanément tendue.
+
+En tant que leader de l'Organisation Akatsuki, la force de Pain ne pouvait naturellement pas être sous-estimée.
+
+Si les deux se battaient vraiment, les conséquences seraient inimaginables.
+
+Kakuzu était secrètement vigilant dans son cœur : « Si ces deux se battent de toutes leurs forces, je crains que la base entière ne soit rasée au sol. »
+
+Il s'était déjà préparé à évacuer à tout moment.
+
+À son avis, l'argent et la vie étaient les choses les plus importantes.
+
+« Intéressant. » Pain gloussa. « Alors laissez-moi witnesser votre vraie force. »
+
+Dès que sa voix tomba, le corps de Pain avait déjà bougé.
+
+Avec une vitesse extrême, il arriva devant le Clone de Hayashi Nanaya en un instant.
+
+Il frappa sa paume vers la poitrine du Clone.
+
+« Shinra Tensei ! »
+
+Une puissante force répulsive éclata de la paume de Pain, suffisante pour souffler tout ce qui bloquait son chemin.
+
+C'est l'une des capacités spéciales du Rinnegan, que presque personne ne peut résister.
+
+Dans son esprit, il avait déjà prévu la scène de cette personne mystérieuse being soufflée.
+
+Mais à la grande surprise de tout le monde.
+
+Le Clone de Hayashi Nanaya resta immobile, comme s'il était complètement unaffected par la force répulsive.
+
+Le pouvoir du Shinra Tensei semblait être complètement absorbé par un champ de force invisible.
+
+« Comment est-ce possible ? » Les pupilles de Pain se contractèrent, regardant la scène devant lui avec incrédulité.
+
+« Le Shinra Tensei est en fait inefficace contre vous ? »
+
+Konan fut également choquée : « C'est impossible… Le Shinra Tensei est le pouvoir du Rinnegan, presque aucun Ninjutsu ne peut y résister. »
+
+Elle était plus que familière avec le pouvoir du Rinnegan. Mais cette scène devant elle avait complètement renversé sa perception.
+
+« Comparé à mon Qi d'Épée, votre force répulsive est trop fragile. »
+
+Le Clone de Hayashi Nanaya dit doucement, sa voix dépourvue de toute fierté, énonçant simplement un fait.
+
+Puis il leva un doigt : « Technique d'Épée de Shushan : Immortel Volant d'Au-delà des Cieux. »
+
+Un brillant Qi d'Épée jaillit du bout du doigt du Clone, comme une météore traversant le ciel nocturne, pénétrant instantanément la défense de Pain.
+
+L'envoyant voler.
+
+Ce Qi d'Épée n'était pas seulement étonnamment rapide, mais le pouvoir qu'il contenait était également alarmant.
+
+Pain s'écrasa lourdement contre le mur, un filet de sang coulant du coin de sa bouche.
+
+« Ceci… comment est-ce possible ? »
+
+Konan regarda cette scène avec choc, incapable de croire que Pain avait été vaincu si facilement.
+
+La vraie identité de Pain était l'avatar de Nagato.
+
+Possédant le pouvoir du Rinnegan, même le Ninja le plus puissant aurait du mal à le blesser.
+
+Mais cette personne mystérieuse devant elle avait blessé Pain avec juste un seul brin de Qi d'Épée.
+
+Une telle force était déjà au-delà de son imagination.
+
+« Si cette personne devient notre ennemi, les conséquences seraient inimaginables. »
+
+Deidara et Sasori se regardèrent, leurs yeux remplis de choc et de vigilance.
+
+## Chapitre 96 — Prévenir les menaces contre l'Organisation
+
+Deidara avait même secrètement préparé une quantité suffisante d'argile explosive, prêt à faire face à tout danger potentiel à tout moment.
+
+Mais Sasori lui jeta un regard d'avertissement, lui signalant de ne pas agir précipitamment.
+
+Kakuzu était encore plus étonné dans son cœur : « La force de cette personne… pourrait avoir déjà dépassé nous tous. »
+
+« S'il rejoint l'Organisation Akatsuki, le paysage de tout le Monde Ninja pourrait changer. »
+
+Kakuzu ressentait rarement de la peur envers quiconque, mais la personne mystérieuse devant lui lui fit ressentir une trace de malaise.
+
+Pain glissa lentement du mur, essuyant le sang du coin de sa bouche, une lueur de choc et de révérence apparaissant dans ses yeux.
+
+Cela faisait longtemps qu'il n'avait pas goûté à l'amertume de la défaite.
+
+Ce sentiment était à la fois inhabituel et sobre.
+
+« Votre technique d'épée… transcende vraiment le système de Chakra. »
+
+Pain admit, sa voix portant une trace de respect rare : « Avec une force si puissante, pourquoi êtes-vous disposé à rejoindre l'Organisation Akatsuki ? »
+
+Cette question était aussi le doute dans l'esprit des autres membres.
+
+Possédant une force aussi formidable.
+
+Cette personne mystérieuse pouvait complètement agir seule ; pourquoi choisir de rejoindre l'Organisation Akatsuki ?
+
+Le Clone de Hayashi Nanaya ne répondit pas directement à cette question, mais regarda plutôt Obito : « Je joins l'Organisation Akatsuki parce qu'Obito et moi partageons un objectif commun. »
+
+Obito hocha la tête et ajouta : « Son joining augmentera grandement notre force et nous aidera à réaliser notre plan plus rapidement. »
+
+Pourtant, Obito avait des pensées non dites dans son cœur : « La force de cette personne mystérieuse dépasse de loin mes attentes ; son existence pourrait changer mon plan original. »
+
+« Cependant, je dois d'abord assurer sa loyauté, puis considérer comment utiliser son pouvoir. »
+
+Pain resta silencieux un moment, puis hocha la tête : « Dans ce cas, bienvenue dans l'Organisation Akatsuki. »
+
+« J'espère que votre pouvoir pourra fournir de l'aide à notre plan. »
+
+En surface, Pain accepta cette explication : « Le pouvoir de cette personne est si grand, je crains qu'il ne se contentera pas d'être un simple membre. »
+
+« Je dois surveiller de près chacun de ses mouvements pour l'empêcher de devenir une menace pour l'organisation. »
+
+Le Clone de Hayashi Nanaya hocha la tête légèrement, indiquant son acceptation.
+
+Les autres membres présents ne remirent plus en question la force de ce nouveau compagnon.
+
+Surtout Hidan et Deidara, dont l'arrogance précédente avait complètement disparu, remplacée par un sentiment de révérence.
+
+« Continuons à discuter de la nouvelle stratégie contre Konoha. » Pain ramena le sujet sur la bonne voie.
+
+« L'apparition de Hayashi Nanaya a en effet perturbé nos plans. »
+
+« Mais maintenant avec l'ajout d'un nouveau compagnon, la situation pourrait changer. »
+
+Obito hocha la tête : « Oui, nous devons reformuler notre plan et lancer une attaque ciblant les faiblesses de Hayashi Nanaya. »
+
+« Hayashi Nanaya a-t-il des faiblesses ? » Kakuzu ricana : « Un Ninja capable de vaincre Uchiha Itachi et Hoshigaki Kisame n'aura probablement pas de faiblesses très évidentes. »
+
+« De plus, il est maintenant le Cinquième Hokage de Konoha, et les forces protectrices autour de lui ne peuvent pas être sous-estimées. »
+
+Kakuzu calcula dans son cœur : « Si nous voulons vraiment nous occuper de Hayashi Nanaya, je crains que nous devions payer un prix énorme. »
+
+« D'un point de vue commercial, le retour sur un tel investissement est tout simplement trop faible. »
+
+« Tout le monde a des faiblesses. » Le Clone de Hayashi Nanaya parla soudain : « Hayashi Nanaya ne fait pas exception. »
+
+Cette phrase attira l'attention de tout le monde, surtout celle de Pain.
+
+Son regard se fixa étroitement sur ce nouveau compagnon mystérieux : « Vous semblez très bien connaître Hayashi Nanaya ? »
+
+« C'est exact. »
+
+« J'ai eu… l'expérience de me heurter à Hayashi Nanaya, donc j'ai une certaine compréhension de ses capacités. »
+
+« Alors, connaissez-vous ses faiblesses ? » demanda Deidara avec empressement.
+
+S'il pouvait trouver les faiblesses de Hayashi Nanaya, il aurait une chance de montrer son art de l'explosion.
+
+« Soyez patient, Deidara. » Obito arrêta les questions de Deidara.
+
+« En ce qui concerne les informations sur Hayashi Nanaya, nous les partagerons au moment approprié. »
+
+Il était encore trop tôt pour demander.
+
+De plus, quel est exactement le but du Clone de Hayashi Nanaya en nous contactant ?
+
+Que compte-t-il faire à l'intérieur de l'Organisation Akatsuki ?
+
+Cependant, peu importe, tant que je peux utiliser son pouvoir pour mon propre usage.
+
+Une coopération temporaire est acceptable.
+
+Pain hocha la tête, indiquant sa compréhension : « Dans ce cas, nous reporterons temporairement le plan pour capturer le Neuf-Queues, et d'abord rassembler plus d'informations sur Hayashi Nanaya. »
+
+« En même temps, les plans de capture pour les autres Bêtes à Queues continueront. »
+
+« Notre objectif ultime n'a pas changé ; seule la stratégie doit être ajustée. »
+
+Après la fin de la réunion, Obito et le Clone de Hayashi Nanaya vinrent dans une pièce cachée.
+
+La pièce entière était scellée par une barrière spéciale, s'assurant que personne ne pouvait écouter leur conversation.
+
+« Vous avez très bien performé. » dit Obito avec satisfaction, retirant son masque pour révéler ce visage couvert de cicatrices.
+
+« Maintenant, ils ont complètement accepté votre existence, et ressentent même de la révérence envers vous. »
+
+Le Clone de Hayashi Nanaya hocha la tête légèrement sans parler.
+
+Il observa tranquillement Obito, comme s'il contemplait quelque chose.
+
+« Cependant, je suis curieux. » Obito changea soudain de sujet.
+
+« Votre Technique d'Épée de Shushan transcende-t-elle vraiment le système de Chakra ? »
+
+« Voulez-vous l'essayer ? »
+
+Obito gloussa et secoua la tête : « Pas besoin, je crois en votre force. »
+
+« Je suis juste un peu curieux, quelle est la source de ce pouvoir ? »
+
+Pourtant, Obito avait ses propres plans dans son cœur.
+
+Puisque ce pouvoir qui transcende le Chakra existe.
+
+Si je pouvais le maîtriser, ce serait sans aucun doute d'une grande aide pour réaliser mon plan de l'Œil de la Lune.
+
+Peut-être que je peux apprendre quelque chose de cette personne mystérieuse.
+
+« Cultivation. » Le Clone de Hayashi Nanaya répondit brièvement : « À travers une cultivation constante, brisant les limites du corps, pour atteindre un Royaume qui transcende le Chakra. »
+
+Bien que cette réponse fût brève, elle laissa Obito pensif.
+
+La méthode de cultivation du Ninja est principalement à travers l'entraînement pour améliorer le contrôle du Chakra et augmenter la quantité de Chakra.
+
+Mais personne n'avait jamais transcendé le système de Chakra à travers la cultivation.
+
+« Intéressant. » Obito hocha la tête. « Il semble que le système de pouvoir dans ce monde est beaucoup plus complexe que je l'imaginais. »
+
+« Peut-être que nous pouvons apprendre certaines choses les uns des autres. »
+
+« Ensuite, nous devons formuler un plan plus détaillé. » Obito continua.
+
+« En ce qui concerne comment s'occuper de Hayashi Nanaya, avez-vous de bonnes suggestions ? »
+
+Le Clone de Hayashi Nanaya réfléchit un moment, puis parla : « Confronter directement Hayashi Nanaya n'est pas un mouvement sage. »
+
+« Nous devrions commencer par les gens autour de lui pour trouver ses vraies faiblesses. »
+
+« Par exemple ? » demanda Obito, une lueur d'excitation dans ses yeux.
+
+S'il pouvait trouver les faiblesses de Hayashi Nanaya, alors son plan pourrait se dérouler plus facilement.
+
+« Par exemple, ses amis, ses professeurs, ou… les gens qu'il protège. »
+
+« Tout le monde a des choses qu'il chérit, et Hayashi Nanaya ne fait pas exception. »
+
+« Surtout en tant que Hokage, il a la responsabilité de protéger tout le Village de Konoha. »
+
+« C'est à la fois sa source de force et sa plus grande faiblesse. »
+
+Obito hocha la tête avec satisfaction : « Comme prévu de vous, ce plan convient parfaitement à mes intentions. »
+
+« Utiliser le sens de responsabilité de Hayashi Nanaya envers Konoha pour s'occuper de lui est en effet une bonne méthode. »
+
+« Donc, vous serez responsable de rassembler des renseignements sur les gens autour de Hayashi Nanaya à partir de maintenant. »
+
+« Je crois qu'avec vos capacités, cela ne devrait pas être difficile à accomplir. »
+
+Le Clone de Hayashi Nanaya hocha la tête légèrement, indiquant son acceptation de la tâche.
+
+Obito, cependant, riait secrètement dans son cœur : « Comme c'est ironique. Le Clone de Hayashi Nanaya doit en fait aller collecter des renseignements sur Hayashi Nanaya lui-même. »
+
+« Cependant, cela pourrait être une bonne opportunité pour moi d'en apprendre plus sur les secrets de Hayashi Nanaya. »
+
+…
+
+Pendant ce temps, dans le Village de Konoha, le corps principal de Hayashi Nanaya recevait continuellement des renseignements sur l'Organisation Akatsuki à travers ses Clones, tout en gérant les affaires quotidiennes de Konoha.
+
+Ce type de Technique de Clone n'était pas un Clone de l'Ombre ordinaire.
+
+Plutôt, il avait été créé par Hayashi Nanaya à travers sa propre méthode d'entraînement spéciale, lui permettant d'agir complètement indépendamment.
+
+En même temps, il maintenait une connexion mentale avec le corps principal.
+
+À l'intérieur du Bureau du Hokage, Hayashi Nanaya examinait les derniers rapports qui avaient été livrés.
+
+« Hokage-sama, les captifs du Village Caché du Sable souhaitent vous voir. »
+
+Shizune rapporta respectueusement, une trace de confusion sur son visage.
+
+Depuis que l'invasion du Village Caché du Sable sur Konoha avait échoué, la plupart des Ninjas du Village du Sable avaient été emprisonnés.
+
+Ils attendaient la disposition des hauts gradés de Konoha.
+
+Maintenant, ces captifs prenaient en fait l'initiative de demander une audience avec le Hokage, ce qui était vraiment inattendu.
+
+Hayashi Nanaya leva les yeux vers Shizune et hocha la tête légèrement : « Est-ce Pakura ? »
+
+Shizune fut quelque peu surprise : « Oui, Hokage-sama. »
+
+« Pakura dit qu'elle a des affaires importantes à discuter avec vous. »
+
+« Faites-la entrer, » dit Hayashi Nanaya calmement.
+
+Peu de temps après, Pakura fut amenée dans le bureau.
+
+En tant qu'Elite Jônin du Village Caché du Sable, Pakura possédait la rare Limite Sanguine de Libération Thermique, et sa force ne pouvait pas être sous-estimée.
+
+Mais à ce moment, elle apparaissait exceptionnellement respectueuse, même quelque peu appréhensive.
+
+« Seigneur Hayashi Nanaya. » Pakura baissa la tête, montrant du respect : « Merci d'être disposé à me voir. »
+
+Pakura se sentait mal à l'aise dans son cœur.
+
+Elle n'avait jamais imaginé qu'il viendrait un jour où elle baisserait la tête devant le Hokage de Konoha.
+
+Mais après avoir witnessé la force de Hayashi Nanaya de ses propres yeux,
+
+elle dut admettre que ce jeune Hokage possédait vraiment un pouvoir impressionnant.
+
+Plus important encore, plutôt que de passer le reste de sa vie dans les prisons du Village Caché du Sable, il valait mieux chercher un nouveau chemin en avant.
+
+Hayashi Nanaya lui fit signe de s'asseoir : « Y a-t-il quelque chose que vous souhaitez dire, Pakura ? »
+
+Entendant les paroles de Hayashi Nanaya, Pakura se sentit encore plus appréhensive et mal à l'aise.
+
+Cependant, voyant que Hayashi Nanaya n'avait aucune réaction après avoir parlé,
+
+Pakura se força à ajuster ses pensées.
+
+Elle parla à Hayashi Nanaya.
+
+« Seigneur Hayashi Nanaya, je représente les Ninjas capturés du Village Caché du Sable en venant me rendre. »
+
+Quand elle parla, l'attitude de Pakura était extrêmement respectueuse.
+
+Il n'y avait pas une trace de l'arrogance d'un Elite Jônin du Village Caché du Sable.
+
+Son regard était rempli de révérence, et si l'on observait attentivement, on pouvait même voir de l'admiration dans ses yeux.
+
+Elle fixa le Hokage de dix-sept ans devant elle, ressentant un mélange complexe d'émotions.
+
+Qui aurait pu imaginer que la guerre entre le Village Caché du Sable et Konoha se terminerait par une défaite aussi désastreuse ?
+
+Et la personne qui a fait que la situation se retourne si inattendument était ce Hokage qui semblait ne pas encore avoir atteint l'âge adulte.
+
+J'ai peur que dans n'importe quelle situation, personne n'aurait pensé que l'autre partie posséderait une force aussi terrifiante.
+
+Cependant, les choses avaient finalement été réglées.
+
+S'il n'y avait rien d'autre à faire ensuite, ils avaient juste besoin d'écouter les paroles de Hayashi Nanaya.
+
+Sinon, la situation entière deviendrait encore plus compliquée.
+
+Entendant les paroles de l'autre partie, Hayashi Nanaya la regarda simplement indifféremment : « Vous rendre ? Pourquoi ? »
+
+Le questionnement soudain de Hayashi Nanaya fit que Pakura ressentit une palpitation.
+
+En tant qu'Elite Jônin du Village Caché du Sable, elle possédait la Limite Sanguine de Libération Thermique.
+
+D'habitude, c'était elle qui faisait ressentir de la peur aux autres, mais maintenant la situation s'était complètement inversée.
+
+Pourtant, elle n'avait aucun moyen de contrôler la peur dans son cœur.
+
+Pakura prit une profonde inspiration, stabilisa ses mains légèrement tremblantes, et parla lentement.
+
+« Pendant le Plan d'Écrasement de Konoha, j'ai witnessé de mes propres yeux la scène de vous tuant le Shinigami d'un seul coup d'épée. »
+
+« Ce genre de pouvoir, qui transcende le sens commun, n'est plus quelque chose que les Ninjas ordinaires peuvent affronter. »
+
+Se rappelant la scène de ce jour-là, elle ressentait encore une peur persistante.
+
+Hayashi Nanaya avait sectionné la chaîne d'Âme du Shinigami d'un seul coup d'épée.
+
+Ce genre de prestige, ce genre d'esprit, était comme un dieu descendant dans le monde.
+
+Même elle, à ce moment-là, ressentait une peur glaciale jusqu'aux os.
+
+Si elle ne se rendait pas à ce moment et voulait toujours s'opposer à l'autre partie,
+
+ce serait clairement chercher la mort.
+
+Elle n'était pas la seule Ninja du Village Caché du Sable.
+
+Ce qu'elle devait faire maintenant était d'aider le Village Caché du Sable à trouver un soutien très fiable.
+
+Un qui pourrait s'assurer qu'ils pourraient vivre de manière stable.
+
+Selon la situation qu'ils comprenaient,
+
+personne n'était plus approprié que Hayashi Nanaya.
+
+C'est pourquoi elle était venue directement à Konoha pour se rendre.
+
+« Continuez, » Hayashi Nanaya lui fit signe de continuer.
+
+Tout ce que Pakura disait était dans ses attentes.
+
+Ce qu'il voulait savoir maintenant était ce que Pakura dirait ensuite pour prouver la situation actuelle.
+
+« Plutôt que de passer le reste de ma vie dans les prisons du Village Caché du Sable, il vaut mieux chercher un nouveau chemin en avant. » Pakura regarda directement dans les yeux de Hayashi Nanaya.
+
+« Je suis disposée à jurer ma loyauté envers vous et à servir Konoha. »
+
+« Je crois que sous votre direction, Konoha deviendra encore plus fort, peut-être même surpassant tous les autres villages ninja et devenant l'hégémon du Monde Ninja. »
+
+Ces paroles de Pakura n'étaient pas de la flatterie, mais des sentiments du cœur.
+
+Pendant le temps où elle avait été capturée, elle avait soigneusement observé chaque mouvement de Hayashi Nanaya.
+
+Elle avait également entendu beaucoup de rumeurs à son sujet.
+
+Devenir Hokage à seulement dix-sept ans, vaincre Itachi et Hoshigaki Kisame à lui seul,
+
+et même être capable de tuer le Shinigami — une telle figure était suffisante pour changer le paysage de tout le Monde Ninja.
+
+Après avoir entendu les paroles de Pakura, Hayashi Nanaya regarda la personne devant lui.
+
+Il avait déjà deviné la plupart de ce qu'elle avait à dire.
+
+De plus, Pakura possédait la rare Limite Sanguine de Libération Thermique et avait une force considérable.
+
+Si elle pouvait être amenée à son service, ce serait un grand boost pour Konoha.
+
+Mais plus important encore, à travers Pakura, il pourrait soumettre plus de Ninjas du Village du Sable et renforcer davantage le pouvoir de Konoha.
+
+Cependant, vouloir rejoindre Konoha juste en se rendant ?
+
+Ce serait un peu trop bon marché.
+
+Après avoir compris comment gérer Pakura, Hayashi Nanaya la regarda à nouveau.
+
+« Est-ce tout ce que vous avez à dire après être venue à Konoha ? »
+
+Que voulait dire le Hokage par cela ?
+
+À en juger par son ton, il avait déjà accepté sa reddition. Quel était le but de dire ces choses maintenant ?
+
+Pourrait-il être qu'il voulait qu'elle prouve sa propre valeur ?
+
+Ou y avait-il des informations cachées entre les deux ?
+
+Mais peu importe quoi, puisque Hayashi Nanaya avait demandé,
+
+cela signifiait qu'il y avait de la place pour l'explication.
+
+« Comme prévu de Seigneur Hayashi Nanaya, allant droit au but. Votre perspicacité est vraiment bien méritée. »
+
+C'était un vrai puissant ; pas besoin de préambule ou de politesses, allant droit au but.
+
+Comparé à cela, ces puissants soi-disant qu'elle avait rencontrés auparavant étaient tout simplement faibles et ridicules.
+
+Elle fit une pause un moment, puis son ton devint solennel : « Orochimaru ne partira pas simplement comme ça. »
+# L'Immortel de Konoha
+### Traduction française — Chapitres 97 à 101
+
+## Chapitre 97 — Avancer est aussi une bonne stratégie
+
+« Utiliser le sens de la responsabilité de Hayashi Nanaya envers Konoha pour s'occuper de lui est en effet une bonne méthode. »
+
+« Donc, vous serez responsable de rassembler des renseignements sur les gens autour de Hayashi Nanaya à partir de maintenant. »
+
+« Je crois qu'avec vos capacités, cela ne devrait pas être difficile à accomplir. »
+
+Le Clone de Hayashi Nanaya hocha la tête légèrement, indiquant son acceptation de la tâche.
+
+Obito, cependant, riait secrètement dans son cœur : « Comme c'est ironique. Le Clone de Hayashi Nanaya doit en fait aller collecter des renseignements sur Hayashi Nanaya lui-même. »
+
+« Cependant, cela pourrait être une bonne opportunité pour moi d'en apprendre plus sur les secrets de Hayashi Nanaya. »
+
+…
+
+Pendant ce temps, dans le Village de Konoha, le corps principal de Hayashi Nanaya recevait continuellement des renseignements sur l'Organisation Akatsuki à travers ses Clones, tout en gérant les affaires quotidiennes de Konoha.
+
+Ce type de Technique de Clone n'était pas un Clone de l'Ombre ordinaire.
+
+Plutôt, il avait été créé par Hayashi Nanaya à travers sa propre méthode d'entraînement spéciale, lui permettant d'agir complètement indépendamment.
+
+En même temps, il maintenait une connexion mentale avec le corps principal.
+
+À l'intérieur du Bureau du Hokage, Hayashi Nanaya examinait les derniers rapports qui avaient été livrés.
+
+« Hokage-sama, les captifs du Village Caché du Sable souhaitent vous voir. »
+
+Shizune rapporta respectueusement, une trace de confusion sur son visage.
+
+Depuis que l'invasion du Village Caché du Sable sur Konoha avait échoué, la plupart des Ninjas du Village du Sable avaient été emprisonnés.
+
+Ils attendaient la disposition des hauts gradés de Konoha.
+
+Maintenant, ces captifs prenaient en fait l'initiative de demander une audience avec le Hokage, ce qui était vraiment inattendu.
+
+Hayashi Nanaya leva les yeux vers Shizune et hocha la tête légèrement : « Est-ce Pakura ? »
+
+Shizune fut quelque peu surprise : « Oui, Hokage-sama. »
+
+« Pakura dit qu'elle a des affaires importantes à discuter avec vous. »
+
+« Faites-la entrer, » dit Hayashi Nanaya calmement.
+
+Peu de temps après, Pakura fut amenée dans le bureau.
+
+En tant qu'Elite Jônin du Village Caché du Sable, Pakura possédait la rare Limite Sanguine de Libération Thermique, et sa force ne pouvait pas être sous-estimée.
+
+Mais à ce moment, elle apparaissait exceptionnellement respectueuse, même quelque peu appréhensive.
+
+« Seigneur Hayashi Nanaya. » Pakura baissa la tête, montrant du respect : « Merci d'être disposé à me voir. »
+
+Pakura se sentait mal à l'aise dans son cœur.
+
+Elle n'avait jamais imaginé qu'il viendrait un jour où elle baisserait la tête devant le Hokage de Konoha.
+
+Mais après avoir witnessé la force de Hayashi Nanaya de ses propres yeux,
+
+elle dut admettre que ce jeune Hokage possédait vraiment un pouvoir impressionnant.
+
+Plus important encore, plutôt que de passer le reste de sa vie dans les prisons du Village Caché du Sable, il valait mieux chercher un nouveau chemin en avant.
+
+Hayashi Nanaya lui fit signe de s'asseoir : « Y a-t-il quelque chose que vous souhaitez dire, Pakura ? »
+
+Entendant les paroles de Hayashi Nanaya, Pakura se sentit encore plus appréhensive et mal à l'aise.
+
+Cependant, voyant que Hayashi Nanaya n'avait aucune réaction après avoir parlé,
+
+Pakura se força à ajuster ses pensées.
+
+Elle parla à Hayashi Nanaya.
+
+« Seigneur Hayashi Nanaya, je représente les Ninjas capturés du Village Caché du Sable en venant me rendre. »
+
+Quand elle parla, l'attitude de Pakura était extrêmement respectueuse.
+
+Il n'y avait pas une trace de l'arrogance d'un Elite Jônin du Village Caché du Sable.
+
+Son regard était rempli de révérence, et si l'on observait attentivement, on pouvait même voir de l'admiration dans ses yeux.
+
+Elle fixa le Hokage de dix-sept ans devant elle, ressentant un mélange complexe d'émotions.
+
+Qui aurait pu imaginer que la guerre entre le Village Caché du Sable et Konoha se terminerait par une défaite aussi désastreuse ?
+
+Et la personne qui a fait que la situation se retourne si inattendument était ce Hokage qui semblait ne pas encore avoir atteint l'âge adulte.
+
+J'ai peur que dans n'importe quelle situation, personne n'aurait pensé que l'autre partie posséderait une force aussi terrifiante.
+
+Cependant, les choses avaient finalement été réglées.
+
+S'il n'y avait rien d'autre à faire ensuite, ils avaient juste besoin d'écouter les paroles de Hayashi Nanaya.
+
+Sinon, la situation entière deviendrait encore plus compliquée.
+
+Entendant les paroles de l'autre partie, Hayashi Nanaya la regarda simplement indifféremment : « Vous rendre ? Pourquoi ? »
+
+Le questionnement soudain de Hayashi Nanaya fit que Pakura ressentit une palpitation.
+
+En tant qu'Elite Jônin du Village Caché du Sable, elle possédait la Limite Sanguine de Libération Thermique.
+
+D'habitude, c'était elle qui faisait ressentir de la peur aux autres, mais maintenant la situation s'était complètement inversée.
+
+Pourtant, elle n'avait aucun moyen de contrôler la peur dans son cœur.
+
+Pakura prit une profonde inspiration, stabilisa ses mains légèrement tremblantes, et parla lentement.
+
+« Pendant le Plan d'Écrasement de Konoha, j'ai witnessé de mes propres yeux la scène de vous tuant le Shinigami d'un seul coup d'épée. »
+
+« Ce genre de pouvoir, qui transcende le sens commun, n'est plus quelque chose que les Ninjas ordinaires peuvent affronter. »
+
+Se rappelant la scène de ce jour-là, elle ressentait encore une peur persistante.
+
+Hayashi Nanaya avait sectionné la chaîne d'Âme du Shinigami d'un seul coup d'épée.
+
+Ce genre de prestige, ce genre d'esprit, était comme un dieu descendant dans le monde.
+
+Même elle, à ce moment-là, ressentait une peur glaciale jusqu'aux os.
+
+Si elle ne se rendait pas à ce moment et voulait toujours s'opposer à l'autre partie,
+
+ce serait clairement chercher la mort.
+
+Elle n'était pas la seule Ninja du Village Caché du Sable.
+
+Ce qu'elle devait faire maintenant était d'aider le Village Caché du Sable à trouver un soutien très fiable.
+
+Un qui pourrait s'assurer qu'ils pourraient vivre de manière stable.
+
+Selon la situation qu'ils comprenaient,
+
+personne n'était plus approprié que Hayashi Nanaya.
+
+C'est pourquoi elle était venue directement à Konoha pour se rendre.
+
+« Continuez, » Hayashi Nanaya lui fit signe de continuer.
+
+Tout ce que Pakura disait était dans ses attentes.
+
+Ce qu'il voulait savoir maintenant était ce que Pakura dirait ensuite pour prouver la situation actuelle.
+
+« Plutôt que de passer le reste de ma vie dans les prisons du Village Caché du Sable, il vaut mieux chercher un nouveau chemin en avant. » Pakura regarda directement dans les yeux de Hayashi Nanaya.
+
+« Je suis disposée à jurer ma loyauté envers vous et à servir Konoha. »
+
+« Je crois que sous votre direction, Konoha deviendra encore plus fort, peut-être même surpassant tous les autres villages ninja et devenant l'hégémon du Monde Ninja. »
+
+Ces paroles de Pakura n'étaient pas de la flatterie, mais des sentiments du cœur.
+
+Pendant le temps où elle avait été capturée, elle avait soigneusement observé chaque mouvement de Hayashi Nanaya.
+
+Elle avait également entendu beaucoup de rumeurs à son sujet.
+
+Devenir Hokage à seulement dix-sept ans, vaincre Itachi et Hoshigaki Kisame à lui seul,
+
+et même être capable de tuer le Shinigami — une telle figure était suffisante pour changer le paysage de tout le Monde Ninja.
+
+Après avoir entendu les paroles de Pakura, Hayashi Nanaya regarda la personne devant lui.
+
+Il avait déjà deviné la plupart de ce qu'elle avait à dire.
+
+De plus, Pakura possédait la rare Limite Sanguine de Libération Thermique et avait une force considérable.
+
+Si elle pouvait être amenée à son service, ce serait un grand boost pour Konoha.
+
+Mais plus important encore, à travers Pakura, il pourrait soumettre plus de Ninjas du Village du Sable et renforcer davantage le pouvoir de Konoha.
+
+Cependant, vouloir rejoindre Konoha juste en se rendant ?
+
+Ce serait un peu trop bon marché.
+
+Après avoir compris comment gérer Pakura, Hayashi Nanaya la regarda à nouveau.
+
+« Est-ce tout ce que vous avez à dire après être venue à Konoha ? »
+
+Que voulait dire le Hokage par cela ?
+
+À en juger par son ton, il avait déjà accepté sa reddition. Quel était le but de dire ces choses maintenant ?
+
+Pourrait-il être qu'il voulait qu'elle prouve sa propre valeur ?
+
+Ou y avait-il des informations cachées entre les deux ?
+
+Mais peu importe quoi, puisque Hayashi Nanaya avait demandé,
+
+cela signifiait qu'il y avait de la place pour l'explication.
+
+« Comme prévu de Seigneur Hayashi Nanaya, allant droit au but. Votre perspicacité est vraiment bien méritée. »
+
+C'était un vrai puissant ; pas besoin de préambule ou de politesses, allant droit au but.
+
+Comparé à cela, ces puissants soi-disant qu'elle avait rencontrés auparavant étaient tout simplement faibles et ridicules.
+
+Elle fit une pause un moment, puis son ton devint solennel : « Orochimaru ne partira pas simplement comme ça. »
+
+## Chapitre 98 — Défection
+
+Cette phrase attira l'attention de Hayashi Nanaya.
+
+Extérieurement, il resta calme, mais son regard devint tranchant.
+
+Pakura sentit une pression invisible, comme si l'espace entier était devenu lourd sous le regard de Hayashi Nanaya.
+
+Elle réalisa que c'était l'aura de Hayashi Nanaya.
+
+Son expression ne changea pas, et elle parla directement.
+
+« Bien qu'Orochimaru ait échoué dans le Plan d'Écrasement de Konoha, il n'abandonne jamais facilement. »
+
+« Selon les renseignements que nous avons recueillis, il est gravement blessé et est très susceptible de chercher Dame Tsunade pour un traitement. »
+
+Pakura baissa la tête, craignant que cela affecte la façon dont Hayashi Nanaya les voyait.
+
+Elle lui dit tout ce qu'elle avait appris.
+
+Cependant, elle était très prudente en parlant.
+
+Elle était terrifiée de dire quelque chose de mal qui pourrait mettre en colère ce jeune et terrifiant Hokage.
+
+Quand Tsunade fut mentionnée, une trace d'admiration apparut dans les yeux de Pakura.
+
+Princesse Tsunade, l'une des Trois Sannin Légendaires de Konoha.
+
+Son Ninjutsu Médical était inégalé dans le Monde Ninja ; si Orochimaru pouvait la trouver, il était en effet possible pour lui de se rétablir.
+
+Pour Konoha, c'était sans aucun doute une énorme menace.
+
+Cependant, Tsunade ne traiterait pas Orochimaru.
+
+Elle ne rencontrerait qu'un certain danger pendant cette série d'événements.
+
+« Avant de quitter le Village Caché du Sable, j'ai entendu le Kazekage mentionner quelque chose. »
+
+« Orochimaru possède un réseau de renseignement extrêmement détaillé. »
+
+« Il semble avoir une certaine connaissance de l'endroit où se trouve Dame Tsunade et a probablement déjà envoyé des gens pour la trouver. »
+
+En entendant cela, les coins de la bouche de Hayashi Nanaya se courbèrent légèrement : « Je sais. »
+
+Aux yeux d'Orochimaru, Tsunade était la seule personne qui pouvait le traiter.
+
+S'il ne trouvait pas Tsunade, il pouvait être considéré comme sans espoir.
+
+Puisqu'il voulait survivre, Tsunade était sa seule chance.
+
+« Vous savez ? » Pakura fut quelque peu surprise.
+
+C'était une opportunité qu'elle avait épuisé toutes ses forces pour découvrir.
+
+Pourtant, le Hokage indiqua en fait qu'il connaissait déjà cette information ?
+
+Était-ce réel ? Pouvait-il encore accepter de les laisser rejoindre Konoha comme ça ?
+
+Cependant, en ce qui concerne les autres, leur force était quelque chose qui nécessitait une considération.
+
+Mais la personne en question était Hayashi Nanaya.
+
+Être capable de prédire les actions d'Orochimaru était peut-être juste un morceau de gâteau pour un Génie comme Hayashi Nanaya.
+
+« Je suis très clair sur la personnalité d'Orochimaru. »
+
+« Cette fois, puisqu'il est gravement blessé, il cherchera en effet Tsunade pour un traitement. »
+
+Voyant la confusion de Pakura, Hayashi Nanaya expliqua : « Cependant, en ce qui concerne l'emplacement de Tsunade, j'ai depuis longtemps fait des déploiements ; je ne lui donnerai aucune chance de se battre. »
+
+En entendant cela, Pakura fut encore plus choquée.
+
+Hayashi Nanaya avait non seulement anticipé les mouvements d'Orochimaru depuis longtemps, mais avait également fait des déploiements ciblés.
+
+Une telle vision stratégique était étonnante.
+
+Avant de venir ici, elle avait pensé que les renseignements qu'elle apportait donneraient à Hayashi Nanaya une surprise ; elle ne s'attendait pas à ce qu'ils soient complètement inutiles.
+
+« J'ai entendu dire que Dame Tsunade a quitté Konoha depuis de nombreuses années, et même le Troisième Hokage n'a pas pu la trouver. Comment connaissez-vous son emplacement ? »
+
+Pakura ne put s'empêcher de demander.
+
+Dès que les mots quittèrent sa bouche, elle réalisa sa présomption, ferma rapidement sa bouche et baissa la tête avec une expression d'excuse.
+
+Cependant, Hayashi Nanaya ne la blâma pas pour sa présomption mais expliqua : « Bien que Tsunade ait quitté Konoha, elle fait toujours partie de Konoha. »
+
+« J'ai mes propres méthodes pour la trouver. »
+
+Entendant l'explication de Hayashi Nanaya, Pakura n'osa pas demander plus et hocha la tête silencieusement.
+
+Par la suite, elle se sentit plus rassurée ; tout ce que Hayashi Nanaya disait le lui prouvait.
+
+Hayashi Nanaya possédait vraiment une force et une sagesse inégalées.
+
+« Seigneur Hayashi Nanaya, je dois admettre que perdre contre vous est notre honneur. »
+
+Pakura dit avec un sourire amer, son regard rempli d'admiration sincère : « J'ai peur que personne dans le Monde Ninja ne puisse être votre adversaire. »
+
+« Si possible, je suis disposée à servir Konoha et à mettre ma Limite Sanguine de Libération Thermique au service de Konoha. »
+
+Elle avait vu d'innombrables personnes puissantes, mais elle n'avait jamais vu personne d'aussi jeune que Hayashi Nanaya possédant une force aussi terrifiante.
+
+Sa soumission complète n'affectait pas vraiment Hayashi Nanaya.
+
+Mais ce serait une opportunité de renforcer leurs forces.
+
+Hayashi Nanaya resta silencieux un moment, puis hocha la tête : « Vous pouvez retourner dire aux autres prisonniers du Village Caché du Sable que ceux qui sont disposés à jurer leur loyauté envers Konoha peuvent obtenir une liberté correspondante. »
+
+« Bien sûr, à condition que ce soit sincère. »
+
+« Tout comportement tentant de trahir Konoha paiera le prix. »
+
+Hayashi Nanaya a accepté leur défection ?
+
+Pakura ne put cacher son excitation et hocha rapidement la tête : « Je comprends, Seigneur Nanaya. »
+
+« Tout le monde subira un dépistage strict pour s'assurer qu'il n'y a pas de motifs cachés. »
+
+« Très bien, vous pouvez y aller. » Hayashi Nanaya agita la main, signalant que Pakura pouvait partir.
+
+Pakura s'inclina respectueusement, puis se retira du bureau.
+
+Après être sortie du bureau, elle laissa enfin échapper un long soupir de soulagement.
+
+Bien que Hayashi Nanaya fût resté calme tout au long.
+
+La pression invisible sur lui la faisait se sentir suffoquée.
+
+Pendant qu'elle parlait, la sueur froide sur son corps avait déjà trempé ses vêtements.
+
+Cependant, la performance de Hayashi Nanaya dépassait de loin ses attentes ; non seulement il n'avait pas méprisé sa défection.
+
+Il avait même donné à tous les prisonniers de Sunagakure un moyen de survivre.
+
+Un tel comportement et une telle magnanimité ne firent que renforcer sa détermination à jurer sa loyauté.
+
+« Pakura, comment cela s'est-il passé ? » Shizune, qui attendait à l'extérieur, demanda à voix basse, une expression inquiète sur son visage.
+
+Pakura révéla un sourire reconnaissant : « Hokage-sama a accepté ma demande et a donné aux autres prisonniers une chance aussi. »
+
+Shizune ne put s'empêcher de hocher la tête, ne pouvant s'empêcher de se sentir émue dans son cœur.
+
+Bien que Hayashi Nanaya fût jeune, sa façon de gérer les affaires n'était pas inférieure à celle du Troisième Hokage.
+
+Cette approche combinant clémence et sévérité était précisément la tradition de longue date de Konoha.
+
+« Comme prévu de Seigneur Nanaya, si jeune, et pourtant ses méthodes sont si matures. »
+
+Shizune pensa à elle-même : « Seigneur Nanaya est vraiment la fierté de Konoha ! »
+
+Cependant, ce que ni l'une ni l'autre n'avaient prévu était ceci.
+
+Tout juste après qu'elles eurent fait défection, toutes les nouvelles se répandirent comme si elles avaient pris une fusée.
+
+Elles se répandirent rapidement.
+
+D'abord, la nouvelle de la défection de Pakura se répandit dans toute la prison où les Ninjas de Sunagakure étaient détenus.
+
+Les Ninjas qui entendirent la nouvelle se moquèrent d'abord d'elle, croyant que Pakura avait trahi le Village Caché du Sable.
+
+« Pakura, cette traîtresse ! Pour se sauver, elle a en fait trahi le Village Caché du Sable ! »
+
+Le Jônin de Sunagakure dit avec colère, frappant son poing contre le mur.
+
+« Ne dis pas ça. » Un autre Ninja de Sunagakure secoua la tête avec une expression grave.
+
+« N'as-tu pas vu à quel point le nouveau Hokage de Konoha est puissant ? »
+
+« Tuer le Shinigami d'un seul coup d'épée — ce genre de pouvoir a déjà transcendé le royaume des Ninjas. »
+
+« Mais se rendre à Konoha équivaut à trahir notre patrie ; c'est une honte pour un Ninja ! »
+
+Le Jônin de Sunagakure continua à rugir, ses yeux remplis de colère et de réticence.
+
+Comment pourraient-ils se rendre directement ?
+
+Même s'ils commençaient à attaquer l'ennemi maintenant, ce serait mieux que de se rendre.
+
+Savaient-ils même ce qu'ils faisaient ?
+
+Pendant ce temps, Pakura, qui était déjà revenue, ne réagit pas en écoutant les paroles de tout le monde.
+
+Elle n'offrit aucune défense, resta simplement là calmement, attendant que le tumulte se calme.
+
+Elle venait juste d'apprendre sa reddition, donc elle pouvait comprendre la colère et la réticence de ces compagnons.
+
+Après tout, ils étaient tous des Ninjas d'élite de Sunagakure, ayant reçu une éducation dès leur plus jeune âge sur la loyauté envers le Village.
+
+Le seul endroit où ils voulaient être était le Village Caché du Sable.
+
+## Chapitre 99 — Le Choix du Village Caché du Sable
+
+Pourtant la réalité est souvent plus cruelle que les idéaux.
+
+« Vous pouvez continuer à rester en prison et attendre que le Village Caché du Sable vous sauve par un échange de prisonniers, »
+
+Pakura attendit que les sons de discussion s'apaisent progressivement avant de commencer à expliquer.
+
+« Mais combien de temps cela prendrait-il ? Un an ? Deux ans ? Ou peut-être que cela n'arrivera jamais ? »
+
+« Le Village Caché du Sable a déjà subi de lourdes pertes, et pour le Village, nous, Ninjas capturés, sommes déjà des 'hommes morts'. »
+
+« Le Monde Ninja est juste aussi cruel ; les perdants n'ont aucune valeur et ne peuvent qu'être abandonnés. »
+
+Beaucoup se turent en entendant les paroles de Pakura.
+
+En effet, dans la réalité cruelle du Monde Ninja, les Ninjas capturés ne reçoivent souvent pas de sauvetage en temps opportun.
+
+Ils pourraient même être abandonnés par leur Village d'origine.
+
+C'est un fait que chaque Ninja connaît au fond de lui mais n'est pas disposé à admettre.
+
+Voyant que la résolution des Ninjas commençait à vaciller,
+
+Pakura continua à expliquer.
+
+« Plus important encore, Hayashi Nanaya-sama a déjà prouvé sa force. »
+
+« Il est devenu le Cinquième Hokage à un jeune âge, a vaincu Uchiha Itachi et Hoshigaki Kisame, et est même capable de tuer le Shinigami. »
+
+« Un tel puissant vaut la peine d'être suivi. »
+
+« L'avez-vous vu en action ? »
+
+Après avoir pris les paroles de Pakura à cœur, un jeune Ninja du Village Caché du Sable demanda à voix basse, ses yeux remplis de curiosité.
+
+Pakura hocha la tête, une trace de révérence apparaissant sur son visage.
+
+« Pendant le Plan d'Écrasement de Konoha, j'ai witnessé de mes propres yeux la scène de lui tuant le Shinigami d'un seul coup d'épée. »
+
+« Ce genre de pouvoir… ce genre d'Aura… c'était comme si un dieu était descendu sur le monde. »
+
+« Vraiment ? » demanda le jeune Ninja, les yeux écarquillés d'incrédulité.
+
+« Absolument vrai, » répondit Pakura de manière affirmative.
+
+« De plus, on dit qu'il a aussi vaincu Uchiha Itachi et Hoshigaki Kisame. »
+
+« Ces deux-là sont des membres de l'Organisation Akatsuki ! »
+
+Alors que Pakura parlait, l'atmosphère dans la prison commença progressivement à changer.
+
+De plus en plus de Ninjas du Village Caché du Sable commencèrent à penser à leur avenir et à considérer s'ils devaient accepter cette opportunité.
+
+« Pouvons-nous vraiment trouver une nouvelle vie à Konoha ? »
+
+Pakura hocha la tête fermement : « Hayashi Nanaya-sama a déjà promis que les Ninjas disposés à jurer leur loyauté envers Konoha peuvent obtenir une liberté correspondante. »
+
+« Bien sûr, nous devons passer un dépistage et un entraînement stricts pour prouver notre loyauté. »
+
+« Hayashi Nanaya-sama tient sa parole ; je peux le garantir. »
+
+Elle croyait que Hayashi Nanaya ne romprait pas sa promesse.
+
+À la fin, sous la persuasion de Pakura, presque tous les prisonniers du Village Caché du Sable choisirent de se rendre.
+
+Ils exprimèrent l'un après l'autre leur volonté de jurer leur loyauté envers Konoha et envers Hayashi Nanaya, ce jeune Hokage.
+
+Non seulement parce qu'ils n'avaient pas d'autre issue, mais aussi parce qu'ils étaient vraiment gagnés par la force de Hayashi Nanaya.
+
+Cette nouvelle parvint bientôt aux oreilles de Hayashi Nanaya.
+
+« Hokage-sama, tous les prisonniers du Village Caché du Sable ont exprimé leur volonté de se rendre et d'accepter les conditions de Konoha. »
+
+Shizune rapporta respectueusement, une touche de agréable surprise révélant dans ses yeux.
+
+Hayashi Nanaya hocha la tête légèrement, pas surpris par ce résultat.
+
+Étant donné la situation difficile dans laquelle se trouvent actuellement les Ninjas du Village Caché du Sable, Pakura a une forte influence parmi eux.
+
+Demander à Pakura de les persuader était la meilleure approche.
+
+C'était le cours d'action le plus approprié.
+
+« Organisez que Pakura soit responsable de leur dépistage et de leur entraînement. »
+
+« En même temps, dépêchez des membres du clan Yamanaka habiles en Transfert Mental pour assister, en s'assurant qu'ils ne nourrissent pas de motifs cachés, » ordonna Hayashi Nanaya, sa voix calme mais incontestable.
+
+« Compris, Hokage-sama, » répondit Shizune, puis hésita un moment.
+
+« Il y a encore une affaire, concernant le Shukaku à Une Queue… »
+
+Le regard de Hayashi Nanaya s'approfondit : « Je sais ; je m'occuperai de cette affaire personnellement. »
+
+Shizune hocha la tête sans demander plus.
+
+Il y a des choses pour lesquelles le Hokage a ses propres considérations.
+
+Cependant, elle devina vaguement dans son cœur que Hayashi Nanaya pourrait avoir un plan spécial pour le Shukaku à Une Queue.
+
+« La force de Hayashi Nanaya-sama est déjà si formidable ; s'il devait ajouter le pouvoir du Shukaku à Une Queue… »
+
+Shizune n'osa pas continuer à y penser ; ce genre de force était tout simplement inimaginable.
+
+Le lendemain matin, Hayashi Nanaya arriva devant la cellule de prison spéciale où Gaara était détenu.
+
+Gaara est le Jinchûriki du Shukaku à Une Queue du Village Caché du Sable, possédant une force extrêmement puissante.
+
+Pendant le Plan d'Écrasement de Konoha, il fut vaincu par Hayashi Nanaya en un seul coup et ensuite emprisonné dans cette cellule spécialement conçue.
+
+« Hayashi Nanaya… » Gaara leva la tête, ses yeux remplis d'émotions complexes.
+
+Il avait toujours été considéré comme une arme par le Village, craint et évité par tout le monde.
+
+Mais Hayashi Nanaya lui donnait un sentiment différent.
+
+Hayashi Nanaya ne lui prêtait pas une attention particulière parce qu'il était le Jinchûriki du Shukaku à Une Queue, ni n'avait peur à cause de son pouvoir.
+
+Aux yeux de Hayashi Nanaya, il était juste un ennemi ordinaire, un adversaire qui devait être vaincu.
+
+Ce traitement égal, au contraire, fit naître un étrange sentiment au plus profond du cœur de Gaara.
+
+« Gaara, vos compagnons ont tous choisi de se rendre, » dit Hayashi Nanaya calmement.
+
+« Y compris Pakura, l'Elite Jônin du Village Caché du Sable, ils ont tous exprimé leur volonté de jurer leur loyauté envers Konoha. »
+
+En entendant cela, un éclair de surprise traversa les yeux de Gaara, mais il revint rapidement au calme : « Alors, êtes-vous venu pour me persuader de me rendre ? »
+
+Hayashi Nanaya secoua la tête : « Non, je suis venu pour vous dire que j'ai besoin du pouvoir du Shukaku à Une Queue. »
+
+« Quoi ? » Les yeux de Gaara s'écarquillèrent, incapable de croire ses propres oreilles.
+
+Le pouvoir du Shukaku à Une Queue ? Qu'est-ce que cela signifie ?
+
+Pourrait-il être que Hayashi Nanaya veuille le tuer et prendre le Shukaku à Une Queue ?
+
+Voyant le regard vigilant de Gaara, Hayashi Nanaya sourit légèrement : « Ne vous inquiétez pas, je ne vous ferai pas de mal. »
+
+Hayashi Nanaya regarda directement dans les yeux de Gaara et expliqua calmement : « Je peux absorber juste une partie du Chakra du Shukaku à Une Queue sans mettre votre vie en danger. »
+
+« Faire cela allégera non seulement votre fardeau et vous empêchera d'être affecté par le Shukaku à Une Queue, mais me permettra également d'obtenir le pouvoir dont j'ai besoin. »
+
+Gaara resta silencieux un long moment, ses yeux remplis d'émotions complexes.
+
+Il avait toujours été tourmenté par le Shukaku, incapable de dormir paisiblement, et son cœur était rempli de douleur et de haine.
+
+La méthode dont parlait Hayashi Nanaya semblait être une solution gagnant-gagnant.
+
+Mais il était difficile de croire qu'une telle bonne chose existerait dans le monde.
+
+De plus, cette personne qui voulait l'aider était Hayashi Nanaya.
+
+Cette affaire semblait très surréaliste, peu importe comment on la regardait.
+
+« Vous pouvez faire cela ? » demanda enfin Gaara, sa voix teintée d'une touche de doute.
+
+« Je le peux, » répondit Hayashi Nanaya de manière affirmative, « mais la condition est que vous devez être disposé. »
+
+Gaara regarda le regard ferme de Hayashi Nanaya et prit une décision dans son cœur : « J'accepte. »
+
+« Cependant, si vous me trompez, je ferai tout mon possible pour vous tuer. »
+
+Hayashi Nanaya hocha la tête, pas en colère par la menace de Gaara.
+
+La vie de Gaara était remplie de trahison et de douleur ; il avait des raisons de rester vigilant.
+
+Par la suite, Hayashi Nanaya commença à se préparer pour le rituel.
+
+D'abord, il mit en place une Formation complexe à l'intérieur de la cellule de prison.
+
+Cette Formation pouvait assurer la sécurité de Gaara tout en absorbant efficacement le Chakra du Shukaku à Une Queue.
+
+Chaque détail de la Formation était précis à l'extrême.
+
+## Chapitre 100 — Quel genre d'art martial Hayashi Nanaya utilisait-il vraiment ?
+
+Une seule erreur pourrait conduire à l'échec de tout le rituel, ou même mettre en danger la vie de Gaara.
+
+Cependant, les mouvements de Hayashi Nanaya étaient exceptionnellement habiles, comme s'il les avait pratiqués d'innombrables fois.
+
+« Ce n'est pas du Ninjutsu… » murmura Gaara à lui-même, un éclair de choc dans ses yeux : « Quel est ce pouvoir ? »
+
+Hayashi Nanaya ne répondit pas, continuant simplement à se concentrer sur la mise en place de la Formation.
+
+Quand tout fut prêt, Hayashi Nanaya commença à lancer le sort.
+
+« Force de Suppression des Huit Désolations ! »
+
+Une pression terrifiante enveloppa instantanément la cellule entière.
+
+Le Shukaku à Une Queue fut incapable de bouger sous cette pression.
+
+Il ne put que regarder impuissant pendant que son Chakra était drainé.
+
+« Ce genre de pression… même le Shukaku à Une Queue ne peut pas y résister ? »
+
+Gaara fut choqué au-delà des mots ; la force de Hayashi Nanaya dépassait de loin son imagination.
+
+« Technique de la Rosée Spirituelle aux Neuf Fleurs ! »
+
+L'énergie spirituelle à l'intérieur de Hayashi Nanaya commença à circuler, formant un vortex qui absorbait le Chakra.
+
+Le Chakra du Shukaku à Une Queue fut guidé dans ce vortex comme un ruisseau, et ensuite absorbé par Hayashi Nanaya.
+
+Le processus entier dura pendant trois heures complètes.
+
+Quand tout se termina, Gaara était déjà tombé dans un sommeil profond.
+
+C'était la première fois qu'il pouvait dormir paisiblement depuis qu'il était devenu Jinchûriki.
+
+Une trace d'expression paisible apparut sur son visage.
+
+La douleur et la haine qui l'avaient tourmenté pendant des années semblaient avoir été libérées à ce moment.
+
+Quant à Hayashi Nanaya, il sentit le pouvoir tumultueux à l'intérieur de son corps.
+
+Le Chakra du Shukaku à Une Queue fut converti en énergie spirituelle pure par la Technique de la Rosée Spirituelle aux Neuf Fleurs, augmentant significativement son niveau de cultivation.
+
+« Transformation de l'Âme — Stade intermédiaire… enfin franchi. »
+
+Hayashi Nanaya sentit l'énergie spirituelle tumultueuse à l'intérieur de lui, rempli d'un sentiment de satisfaction.
+
+Cette Percée avait élevé sa force à un autre niveau.
+
+Un niveau de cultivation de Transformation de l'Âme au stade intermédiaire pouvait être considéré comme celui d'un expert formidable même dans le Monde de la Cultivation.
+
+Sans parler d'un monde de basse dimension comme le Monde Ninja.
+
+« Désormais, l'Organisation Akatsuki et Orochimaru ne seront plus des menaces. »
+
+Hayashi Nanaya pensa à lui-même, un éclair de détermination dans ses yeux.
+
+Quand Hayashi Nanaya sortit de la cellule,
+
+Kakashi Hatake et les autres qui attendaient à l'extérieur sentirent immédiatement l'Aura terrifiante émanant de lui.
+
+« Hokage-sama… » Les yeux de Kakashi Hatake s'écarquillèrent, incapable de croire ses sens : « Vos niveaux de Chakra… »
+
+L'Aura émanant de Hayashi Nanaya était au moins dix fois plus forte qu'avant.
+
+Elle lui faisait même ressentir une trace d'oppression.
+
+Ce changement était trop évident ; même un Ninja ordinaire pouvait le sentir.
+
+Sans parler de quelqu'un avec son niveau de force.
+
+Mais quand Hokage-sama est entré dans la cellule,
+
+Son Aura n'avait pas été aussi intense.
+
+Qu'a-t-il dit à l'autre partie après y être entré ?
+
+Pourquoi y avait-il un changement aussi énorme tout d'un coup ?
+
+Hayashi Nanaya sourit légèrement : « Avec la bénédiction du Chakra du Shukaku à Une Queue, ma force s'est en effet améliorée considérablement. »
+
+Kakashi Hatake et les autres se regardèrent, leurs yeux remplis de choc et de révérence.
+
+Sa force originale était déjà hors de portée.
+
+Maintenant qu'il avait reçu la bénédiction du Chakra du Shukaku à Une Queue, un tel pouvoir était tout simplement inimaginable.
+
+« La force de Seigneur Nanaya… a déjà dépassé le cadre d'un Hokage. »
+
+Kakashi Hatake réfléchit à lui-même : « Elle pourrait même approcher la légende du Sage des Six Voies. »
+
+« Hokage-sama, votre force actuelle… » Might Guy ne put s'empêcher de demander.
+
+Hayashi Nanaya regarda sa main et répondit calmement : « C'est suffisant pour gérer les défis à venir. »
+
+En entendant cette réponse, Kakashi Hatake et les autres furent encore plus choqués.
+
+« Comment va Gaara ? » demanda Kakashi Hatake prudemment, inquiet que le rituel ait pu nuire à Gaara.
+
+« Il va bien, il dort, » répondit Hayashi Nanaya.
+
+« C'est peut-être la première fois qu'il peut dormir paisiblement depuis qu'il est devenu Jinchûriki. »
+
+En entendant cette réponse, Kakashi Hatake poussa un soupir de soulagement.
+
+Le Hokage n'avait pas seulement pas nui à Gaara, mais l'avait aussi aidé à résoudre un problème qui l'avait tourmenté pendant des années.
+
+Une telle bonté et une telle sagesse confirmèrent davantage que Hayashi Nanaya était le seul et unique choix pour Hokage.
+
+« Ensuite, nous devons être préparés à faire face aux crises potentielles. »
+
+Hayashi Nanaya regarda tout le monde autour de lui : « La menace de l'Organisation Akatsuki existe toujours, et Orochimaru n'abandonnera pas simplement comme ça. »
+
+« Compris, Hokage-sama ! » répondit tout le monde d'une seule voix, leurs yeux remplis de détermination.
+
+La nouvelle que tous les captifs du Village Caché du Sable s'étaient rendus se répandit bientôt dans tout le Monde Ninja.
+
+Ce qui était encore plus choquant, c'était que Hayashi Nanaya avait non seulement soumis le Jinchûriki du Shukaku à Une Queue, Gaara.
+
+Il avait également absorbé une partie du Chakra du Shukaku à Une Queue, augmentant encore sa force.
+
+Les grands Villages Ninja réagirent différemment, mais sans exception, ils ressentirent tous du choc et de l'inquiétude.
+
+Après avoir subi l'invasion d'Orochimaru, Konoha ne s'était pas affaibli, mais était au contraire devenu encore plus fort.
+
+La force affichée par le nouveau Cinquième Hokage, Hayashi Nanaya, avait de loin dépassé leur imagination.
+
+…
+
+« Les Elite Jônins du Village Caché du Sable ont tous choisi de se rendre ? Même le Jinchûriki du Shukaku à Une Queue, Gaara, a été persuadé ? »
+
+En entendant cette nouvelle, la Mizukage du Village Caché de la Brume, Mei Terumī, eut un éclair de surprise dans ses yeux. Elle s'appuya contre sa chaise, une expression pensive apparaissant sur son beau visage.
+
+« Le charisme de Hayashi Nanaya est vraiment incroyable. »
+
+« Non seulement cela, on dit que Hayashi Nanaya a également absorbé une partie du Chakra du Shukaku à Une Queue, et sa force a encore augmenté. »
+
+Ao poussa ses lunettes et ajouta, l'expression sur son visage étant sans précédent sérieuse.
+
+Quand il avait appris que Hayashi Nanaya était devenu Hokage auparavant,
+
+c'était déjà assez choquant.
+
+Mais il ne s'attendait pas à ce que peu de temps se soit écoulé.
+
+La force de Hayashi Nanaya avait en fait augmenté à nouveau.
+
+Cela ne va pas.
+
+Si Hayashi Nanaya est autorisé à continuer sans contrôle,
+
+Konoha contrôlera complètement le leadership.
+
+Mei Terumī fronça légèrement les sourcils : « Dans ce cas, sa force a probablement atteint un niveau inconcevable. »
+
+« Nous devons réévaluer notre relation avec Konoha. »
+
+« Oui, nous devrions établir des relations amicales avec Konoha dès que possible, » suggéra Ao.
+
+« Au lieu d'être ennemis, il vaut mieux être alliés. »
+
+« Si un expert comme Hayashi Nanaya peut devenir notre allié, ce sera d'une grande aide pour le Village Caché de la Brume. »
+
+…
+
+Tsunade et Shizune venaient de finir une journée de jeu et étaient sur le chemin du retour à l'auberge.
+
+La petite ville qu'elles avaient choisie était située à la frontière du Pays du Feu. Elle était généralement animée de touristes et était l'un des endroits préférés de Tsunade.
+
+Elle avait à la fois des casinos pour son divertissement et des sources chaudes pour qu'elle puisse se détendre.
+
+Plus important encore, elle était loin de ces souvenirs douloureux de Konoha.
+
+« Dame Tsunade, vous avez encore perdu pas mal aujourd'hui. »
+
+Shizune dit prudemment, craignant de la mettre en colère.
+
+Tsunade se frotta les tempes, ses sourcils froncés : « Hmph, ces casinos doivent tricher ! Sinon, comment pourrais-je perdre treize fois de suite ? »
+
+Cette fois, sa chance était en effet mauvaise.
+
+Depuis qu'elle était entrée, elle n'avait pas gagné une seule fois.
+
+Et sa tête lui faisait mal en pulsant.
+
+Elle ne savait pas si quelque chose s'était produit.
+
+Juste au moment où elle se demandait s'il y avait un événement inattendu qu'elle ne connaissait pas,
+
+elle sentit soudain une Aura froide attaquant de loin.
+
+Tsunade devint immédiatement alerte, s'arrêta sur place et scruta les ombres environnantes.
+
+« Qui est là ? Sortez ! » Tsunade cria sévèrement, ses mains déjà préparées pour le combat.
+
+## Chapitre 101 — L'Attaque d'Orochimaru
+
+Shizune ne remarqua rien d'inhabituel.
+
+Entendant les paroles de Tsunade,
+
+elle fut stupéfaite.
+
+Suivant le regard de Tsunade, elle regarda par-dessus.
+
+Deux silhouettes émergèrent lentement de l'ombre des arbres non loin de là.
+
+Alors que la lumière de la lune brillait sur eux, les pupilles de Tsunade se contractèrent soudainement.
+
+« Orochimaru… » murmura-t-elle.
+
+Le visage d'Orochimaru était pâle, encore plus que d'habitude, et il força un sourire au coin de sa bouche.
+
+« Ça fait longtemps, Tsunade. »
+
+« C'est donc là que tu te cachais tout ce temps. »
+
+« Tu étais difficile à trouver. »
+
+À côté de lui se tenait un jeune homme portant des lunettes ; c'était son assistant, Yakushi Kabuto.
+
+« Que veux-tu ? » demanda Tsunade avec vigilance, tout en signalant silencieusement à Shizune de faire un pas en arrière.
+
+Elle n'avait pas peur d'Orochimaru.
+
+Mais elle ne pouvait pas agir précipitamment à ce moment.
+
+Depuis qu'Orochimaru était apparu, elle pouvait sentir que son état n'était pas bon, comme s'il cachait un motif caché.
+
+Et auparavant, Orochimaru venait d'être vaincu par le Hokage.
+
+Comment pouvait-il venir ici pour la trouver ?
+
+Quel genre de complot manigançait-il ?
+
+Avant que Tsunade pût comprendre pourquoi Orochimaru apparaîtrait ici,
+
+Orochimaru, se tenant en face d'elle, toussa quelques fois, une expression de douleur apparaissant sur son visage.
+
+« Tsunade, ton Ninjutsu Médical est inégalé dans le Monde Ninja. »
+
+« Je suis venu aujourd'hui pour te demander de traiter mes blessures. »
+
+Tsunade ricana : « Tu es blessé ? Qui a la capacité de te blesser ? »
+
+« Hayashi Nanaya… » Orochimaru cracha le nom entre ses dents serrées, une trace de ressentiment flashant dans ses yeux.
+
+Les yeux de Tsunade s'aiguisèrent en entendant cela : « Qu'as-tu dit ? Nanaya ? Comment pourrait-il… »
+
+« Ce morveux est devenu le Cinquième Hokage et m'a vaincu pendant le Plan d'Écrasement de Konoha. »
+
+Une trace de réticence apparut sur le visage d'Orochimaru : « Non seulement cela. »
+
+« Il a même brisé le Premier Hokage et le Deuxième Hokage que j'ai invoqués en utilisant l'Edo Tensei, et a même tué le Shinigami ! »
+
+Tsunade écarquilla les yeux de choc, regardant Orochimaru avec incrédulité : « Tu dis que Nanaya… est devenu le Hokage ? Et t'a vaincu ? Comment est-ce possible ! »
+
+Presque instantanément, d'innombrables questions et chocs affluèrent dans le cœur de Tsunade.
+
+Son petit frère était en fait devenu le Hokage de Konoha ?
+
+Et était même assez puissant pour vaincre Orochimaru ?
+
+Elle avait toujours su que Nanaya était doué, mais c'était tout simplement trop outrageux !
+
+« Quoi ? Tu ne crois pas en la force de ce morveux ? » Orochimaru ricana.
+
+« Il a utilisé une escrime jamais vue auparavant pour sectionner la chaîne d'Âme du Shinigami. »
+
+« Il pouvait même ignorer les restrictions spatiales et se déplacer librement. »
+
+« Ce genre de pouvoir… a déjà transcendé le royaume d'un Ninja. »
+
+Alors qu'Orochimaru le décrivait, le choc dans son cœur s'approfondit.
+
+Le taux de croissance de Nanaya avait de loin dépassé ses attentes.
+
+Ce bébé qui ne savait que faire le gâté dans ses bras,
+
+avait maintenant grandi en une existence capable de défier le Shinigami ?
+
+Il y avait à la fois de la surprise et une trace de fierté dans son cœur.
+
+« Si tu ne me crois pas, tu peux demander à ton coéquipier qui a également fui Konoha. »
+
+Orochimaru dit froidement : « Jiraiya a également witnessé tout cela. »
+
+« Donc, tu as été blessé par mon petit frère, et maintenant tu es venu me supplier de te soigner ? »
+
+Tsunade ricana, une expression moqueuse sur son visage : « Comme c'est ironique, Orochimaru. »
+
+L'expression d'Orochimaru s'assombrit encore : « Mes bras ont été estropiés par lui, et les méridiens dans mon corps ont été gravement endommagés. »
+
+« Les Ninjas Médicaux ordinaires ne peuvent tout simplement pas le soigner. Tsunade, toi seule peux m'aider. »
+
+Tsunade resta silencieuse un moment, puis refusa sans hésiter : « Impossible. »
+
+« Tu as trahi Konoha et as même essayé d'utiliser l'Edo Tensei pour ressusciter le Premier Hokage et le Deuxième Hokage. Pourquoi devrais-je t'aider ? »
+
+Les yeux d'Orochimaru devinrent dangereux : « Je m'attendais à ce que tu dises cela. Alors… »
+
+Il hocha la tête légèrement, et quatre silhouettes assaillirent Tsunade et Shizune de toutes les directions !
+
+« Formation des Quatre Flammes Violettes ! »
+
+Tsunade et Shizune furent instantanément entourées d'une barrière violette, incapables de s'échapper.
+
+« Les Quatre du Son ? » Tsunade reconnut ces gens, et son expression devint grave.
+
+« Oui, ils s'assureront que tu coopères avec moi obéissamment. »
+
+Orochimaru grimaça, révélant des dents canines pointues : « Tsunade, ne me force pas à agir. Tu connais mes méthodes. »
+
+Tsunade serra les poings, des veines gonflées : « Tu penses que tu peux me menacer avec ça ? Trop naïf ! »
+
+Elle frappa le sol de son poing.
+
+Avec l'attaque de Tsunade, le sol entier se brisa instantanément, et une onde de choc puissante fit vibrer la barrière.
+
+Mais après qu'elle eut déchaîné l'attaque qu'elle pensait briser la barrière,
+
+elle découvrit que la barrière en face d'elle restait immobile.
+
+Elle absorbait même son attaque.
+
+« C'est inutile, Tsunade. » Orochimaru rit : « Cette barrière est spécialement faite ; même ta super force ne peut pas la briser. »
+
+Entendant les paroles d'Orochimaru, Tsunade serra les dents.
+
+Si elle était seule, elle n'hésiterait pas à se battre avec Orochimaru jusqu'à la mort.
+
+Mais Shizune était là maintenant, et elle ne pouvait pas prendre le risque.
+
+Même si elle devait prendre un risque, elle devait assurer la sécurité de Shizune.
+
+« Dame Tsunade… » Shizune regarda sa Maîtresse avec inquiétude.
+
+Elle se demanda si Hokage-sama savait que Dame Tsunade était assiégée ?
+
+Et s'il pouvait venir les aider.
+
+Tsunade prit une profonde inspiration, essayant de rester calme : « Shizune, n'aie pas peur. »
+
+« Puisque Nanaya est devenu le Hokage, il remarquera sûrement l'anomalie et enverra quelqu'un pour nous sauver. »
+
+Orochimaru entendit cela et ne put s'empêcher de ricaner : « Tu penses vraiment que ce morveux sait où tu es ? Même s'il le savait, au moment où il arrivera, tout sera déjà terminé. »
+
+Tsunade révéla un sourire mystérieux : « Tu sous-estimes trop Nanaya, Orochimaru. »
+
+« Puisque sa force peut te vaincre, son réseau de renseignement ne sera probablement pas mauvais non plus. »
+
+Orochimaru rétrécit légèrement les yeux, une trace d'inquiétude traversant son cœur.
+
+Il réprima rapidement cette émotion et se tourna vers Yakushi Kabuto : « Emmène-les à la base. »
+
+« J'ai besoin que Tsunade soigne mes bras dès que possible. »
+
+Kabuto poussa ses lunettes et hocha la tête respectueusement : « Oui, mon Seigneur. »
+
+Juste au moment où ils se préparaient à emmener Tsunade et Shizune,
+
+une lumière dorée flasha soudain dans le ciel nocturne lointain.
+
+« Hmm ? » Les pupilles d'Orochimaru se contractèrent, et il tourna brusquement la tête pour regarder la source de lumière.
+
+Il vit une silhouette descendant du ciel.
+
+Une pression terrifiante émanait de son corps, comme si un Dieu Céleste était descendu.
+
+« Nanaya ! » s'exclama Tsunade, ses yeux remplis d'incrédulité.
+
+Que se passait-il ?
+
+Il semble que la force de Nanaya se soit encore améliorée.
+
+Voyant Hayashi Nanaya atterrir sur le sol,
+
+Tsunade se sentit soulagée tout en ne pouvant s'empêcher d'examiner attentivement Hayashi Nanaya.
+
+Au moment où il atterrit, la lumière dorée autour de lui se répandit comme des ondulations.
+
+La température de l'espace entier semblait monter un peu.
+
+Son Aura était magnifique et vaste, aussi profonde et oppressante que l'océan.
+
+Les faisant ressentir une pression invisible.
+
+« Orochimaru… » Hayashi Nanaya ne parla pas à Tsunade.
+
+Au lieu de cela, il concentra son regard sur Orochimaru.
+
+« Je savais que tu viendrais chercher Tsunade. »
+
+L'expression d'Orochimaru s'assombrit, et une trace d'horreur flasha dans ses yeux : « Comment es-tu ici ? »
+
+« N'oublie pas, j'ai déjà absorbé une partie du pouvoir du Shukaku à Une Queue, » dit Hayashi Nanaya indifféremment, avec une trace de moquerie dans ses yeux.
+
+« Avec ma force actuelle, sentir ton Aura n'est pas difficile. »
+
+*Fin des chapitres 97 à 101.*
+
+*À suivre — Les chapitres 102 à 106 seront prêts sur demande.*
